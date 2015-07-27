@@ -5,7 +5,7 @@ Caractéristiques générales
 --------------------------
 
 +---------+----------------------------------------------+
-| Nom     | Sanji no Ransu-Hana (anciennement Wayakiza) |
+| Nom     | Sanji no Ransu-Hana (anciennement Wayakiza)  |
 +=========+==============================================+
 | Age     | 28 ans                                       |
 +---------+----------------------------------------------+
