@@ -11,3 +11,9 @@ Test de table des matières
    :caption: Personnages d'Édipha
 
    edipha/personnage/index
+
+.. toctree::
+   :maxdepth: 2
+   :caption: Personnages d'Atale
+
+   atale/personnage/index
