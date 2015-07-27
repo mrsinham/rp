@@ -61,13 +61,13 @@ de terre. De temps à autre, un esprit Onshaa, ces petites statuettes aux
 allures bouddhistes qui protègent la route des mauvaises influences.
 Elles ont aussi fonction de bornes kilométriques et s'il en a déjà
 dépassé six depuis l'embranchement c'est qu'il n'est plus très loin de
-son but : ''Le temple de Gotaï''. La gourde satinée saute sous les pas
+son but : **Le temple de Gotaï**. La gourde satinée saute sous les pas
 de la course, bien arrimée par les tresses dorées pendant que les bottes
 presque encore luisantes appuient sur les étriers de bois, bien moins
 douloureux que ceux en métal, Tageshi est un homme raffiné et d'honneur.
 
 Il y a quatre ans, Tageshi n'aurait jamais recevoir l'honneur de faire
-parti des ''messagers rouges''. Cette troupe d'élite a toujours été son
+parti des **messagers rouges**. Cette troupe d'élite a toujours été son
 rêve, car il est raconté partout et depuis longtemps que ces messagers
 franchissent les batailles sans s'arrêter, que l'un des plus célèbre est
 arrivé mort à son général, criblé de trente quatre flèches, le parchemin
@@ -99,7 +99,7 @@ exaucé son rêve et il le servait fièrement. Alors qu'il chevauchait en
 passant sous une chute d'eau, celui-ci fronca les sourcils. Ce n'est pas
 aujourd'hui qu'il faillira à Chan, sa vie lui appartient.
 
--  "'''Yah!'''" fut le seul cri raisonnable à sortir de sa bouche. Tout
+-  "**Yah!**" fut le seul cri raisonnable à sortir de sa bouche. Tout
    le reste n'est que volonté.
 
 Les minutes passèrent égrainées comme des heures, où chaque foulée
@@ -112,7 +112,7 @@ les ravins de son enfance. La pente est dure sur la fin mais le destrier
 des montagnes a de solides jambes ; il dépasse la ligne du col pour
 surplomber le temple où sa mission le mène.
 
-'''Gotaï'''.
+**Gotaï**.
 
 Immense temple creusé dans la montagne aux allures aztèques, très
 différent du style Ediphan, il se tient niché au bas de la falaise que
@@ -143,8 +143,8 @@ ventre ou sur le dos. Des lances brisées, un katana planté dans le sel.
 
 Là! Se relevant appuyé sur son sabre, un survivant ! Ses pas sont
 hésitants mais sa volonté est acier. Couvert de boue et de son propre
-sang, il court en criant les mots sacrés des gardes royaux : "'''Mon
-sang nourrit la volonté des Li Ara !'''", katana brandit auréolé de Qi.
+sang, il court en criant les mots sacrés des gardes royaux : "**Mon
+sang nourrit la volonté des Li Ara !**", katana brandit auréolé de Qi.
 Ses pas seront vite arrêtés.
 
 D'abord éloignés, les explosions font voler l'eau autour du martyr, puis
@@ -193,22 +193,22 @@ Un homme sur un cheval parle une horrible langue, aux sonorités hachées
 et tranchées, pendant que ce qui semble être un lieutenant semble
 traduire.
 
--  "'''Nous voulons le temple. Rendez-vous et nous vous laisserons
-   partir !''' "
+-  "**Nous voulons le temple. Rendez-vous et nous vous laisserons
+   partir !** "
 
 Froissé dans son honneur, Chan brandit plus fort son arme, hurlant une
 réponse courroucée :
 
--  "'''J'ai de mon père la mission de vous empêcher d'avancer, alors
-   vous ne passerez pas, chiens !'''"
+-  "**J'ai de mon père la mission de vous empêcher d'avancer, alors
+   vous ne passerez pas, chiens !**"
 
 Le coeur de Tageshi s'affole, et pendant que son regard cherche cette
 fois le moyen de descendre rejoindre son maître, l'étrange discussion
 continuant sous les cliquetis de soldats qui ne peuvent reste en place.
 Le général répond une fois la traduction faite.
 
--  "'''Soyez raisonnable. Soit nous vous capturons au filet, soit vous
-   vous rendez pacifiquement. Votre armée a été vaincue.'''"
+-  "**Soyez raisonnable. Soit nous vous capturons au filet, soit vous
+   vous rendez pacifiquement. Votre armée a été vaincue.**"
 
 Tageshi écarquille les yeux, ramené par cette phrase inimaginable vers
 l'échange. Un samouraï ?! ATTRAPÉ AU FILET ?! SE RENDRE ?! Mais qui est
@@ -217,7 +217,7 @@ les filets ?! Ils vont oublier leur statut d'homme pour gagner ?! Son
 maître réagit beaucoup mieux que lui, avançant son pieds pour faire
 prendre à son katana une garde horizontale.
 
--  "'''Venez, guerriers sans honneur.'''" annonce-t-il entre deux
+-  "**Venez, guerriers sans honneur.**" annonce-t-il entre deux
    respirations fatiguées.
 
 Des filets sont lancés, découpés aussitôt par la technique royale et
@@ -234,8 +234,8 @@ pour le charger.
 
 Trois, deux, ...
 
-''Maître, je mourrais sous le coup de leurs canons, mais je vous offre
-sa vie !''
+**Maître, je mourrais sous le coup de leurs canons, mais je vous offre
+sa vie !**
 
 La main gantée de noir se referme sur sa bouche, l'attirant en arrière,
 les deux parties de son armes retombant avec un bruit étouffé dans
@@ -249,20 +249,20 @@ du prince, mais la femme vêtue de noir ne dit rien et ne semble pas
 craindre la mort. Elle remonte ses saphirs sur Tageshi, qui fronce les
 sourcils d'incompréhension.
 
-''Une ombre ?!''
+**Une ombre ?!**
 
 Celle-ci remonte doucement sa main à sa bouche, montrant ainsi qu'elle
 ne veut pas se défendre de lui. Par contre, elle amène un doigt devant
 ses lèvres masquées, prononçant un :
 
--  "'''schh...'''"
+-  "**schh...**"
 
 Tageshi regarde tout autour de lui, pendant que des mirages secouent
 l'air pour laisser apparaître des dizanes de combattants de noir, chacun
 tenant un canon de bois à mèche, à tête de tigre sombre, qu'ils
 plaçèrent religieusement entre les herbes asséchées par la saison.
 
-Se parlant par le regard, ''ceux qui ont abandonné leur honneur'' se
+Se parlant par le regard, **ceux qui ont abandonné leur honneur** se
 préparèrent à l'assaut et c'est pour cela que Tageshi fut arrêté par la
 combattante. Il avait depuis lors hoché le visage et rengainé son
 katana, son esprit parcouru de question sur le manque d'honneur à
@@ -349,8 +349,8 @@ chemin. La masse armurée prit la parole avec une voix si caverneuse et
 avec un tel langage haché que le samouraï se demanda s'il en était pas
 un démon :
 
--  '''lle mae dros byddwch yn hoffi hynny, ychydig iawn o beth? hahahah
-   ..'''
+-  **lle mae dros byddwch yn hoffi hynny, ychydig iawn o beth? hahahah
+   ..**
 
 Relevant une énorme masse, la menace n'attendit pas un seul instant la
 réponse pour abattre son arme à pointe. Une attaque basique dont le
@@ -371,8 +371,8 @@ les genoux. Être un grand guerrier et défendre sa nation. Rien ne
 semblait plus important à l'époque. Il demandait souvent à son père ce
 que c'était, de porter un katana.
 
-Une réponse souvent lui était donnée en retour : '''"C'est comme porter
-un poids."'''. Très insatisfaisant bien sûr, pour un petit de sept ans
+Une réponse souvent lui était donnée en retour : **"C'est comme porter
+un poids."**. Très insatisfaisant bien sûr, pour un petit de sept ans
 qui rêvait d'inscrire son nom dans l'histoire.
 
 Oh il était un puissant guerrier à présent, le barbare dont le visage se
@@ -402,50 +402,50 @@ Les trois soldats s'approchent lentement du prince redressé avec leur
 filet, ravis de pouvoir mettre enfin un terme au conflit. Chan ne
 réagira pas, il laissera son corps le faire. Qu'on en finisse.
 
--  '''Maître ... ! MAAAAAAAAAAAAAAIIIITRE !!!!'''
+-  **Maître ... ! MAAAAAAAAAAAAAAIIIITRE !!!!**
 
 L'emprise du corps revient, une roulade lui permet d'échapper aux
 mailles de l'empire d'occident et Chan regarde Tageshi qui court vers
 lui. Le souverain hausse un sourcil d'une expression de surprise
 évidente.
 
--  '''Tageshi !!'''
+-  **Tageshi !!**
 
 Son soldat évacue bien vite les quelques soldats qui les séparent par
-des mouvements de la ''voie du guerrier'', pendant que le souverain ne
+des mouvements de la **voie du guerrier**, pendant que le souverain ne
 bouge que pour éviter le filet.
 
--  '''Laissez mon maître tranquille, bande de Chezae !'''
+-  **Laissez mon maître tranquille, bande de Chezae !**
 
 Une course rapide, un saut au milieu des opposants qui ne sont
 visiblement pas du niveau et Tageshi se place en garde pour protéger son
 maître absolu.
 
--  '''Maître ! Je viens avec vous dans l'honneur ! Je serai à vos côtés
-   !'''
+-  **Maître ! Je viens avec vous dans l'honneur ! Je serai à vos côtés
+   !**
 
 Le regard morne de Chan surmonte un sourire attendri et même plus encore
 fier, quoique bien fade.
 
--  '''Je suis fier de mourir avec toi, Tageshi.'''
+-  **Je suis fier de mourir avec toi, Tageshi.**
 
 Aussitôt les sourcils froncés, son soldat lui hurle alors qu'il le
 défend face à un lancier.
 
--  '''Battons nous votre altesse ! En avant !'''
+-  **Battons nous votre altesse ! En avant !**
 
 La hampe ennemie saute par un éclat circulaire, et son porteur
 s'écroule, un katana dans le coeur. Chan se retourne vers la bataille
 entre les ombres et les soldats de la cinquième légion d'Atalentis.
 
--  '''C'est inutile de courir vers la mort, Tageshi. Marchons
-   simplement.'''
+-  **C'est inutile de courir vers la mort, Tageshi. Marchons
+   simplement.**
 
 Tageshi arrive aussitôt auprès de son maître, à une proximité que le
 jeune homme n'attendait pas. Plaqué contre l'armure de Chan, un objet
 brillant y trône violemment, appuyé par les mains de Tageshi.
 
--  '''Son altesse votre mère n'est pas d'accord, votre Altesse!'''
+-  **Son altesse votre mère n'est pas d'accord, votre Altesse!**
 
 Chan abaisse les yeux sur l'objets, pour y distinguer un anneau d'or
 rouge, tiré l'instant d'avant de sa besace par le messager rouge. Les
@@ -475,8 +475,8 @@ Sous le soleil d'Edipha, il lève son regard vers le ciel qui s'illumine
 d'un rayon léchant le bord d'un nuage. Les mots se déposent dans sa
 bouche pour éclairer son monde.
 
--  '''La terre est l'homme. Le ciel est la femme. La pluie nourrit le
-   premier.'''
+-  **La terre est l'homme. Le ciel est la femme. La pluie nourrit le
+   premier.**
 
 Chan affermit sa prise sur son épée, souriant d'amour et de volonté
 jusqu'à en rire - Un pieds en trop. Il n'y aura plus d'hésitation, plus
@@ -484,7 +484,7 @@ de doute. Son travail n'est pas de comprendre le sens de ces situations
 chaotiques, son travail en tant qu'homme est de construire un monde pour
 Chizue et d'y apporter l'ordre !
 
--  '''En avant Tageshi ! EN AVANT, POUR ÉDIPHA ET NOTRE MONDE !'''
+-  **En avant Tageshi ! EN AVANT, POUR ÉDIPHA ET NOTRE MONDE !**
 
 Tageshi n'aurait jamais cru sourire en cet instant, et c'est pourtant ce
 qu'il fit lorsqu'ils se battirent dos à dos comme des frères. Jamais il
@@ -500,7 +500,7 @@ connaissances de son unités tomber sous les coup de ces combattants qui
 semblaient disparaître.
 
 Il se jeta au sol pour esquiver un flot d'étoile argentée en poussant un
-''HA!'', relevant la tête pour observer Tarik tomber après en avoir reçu
+**HA!**, relevant la tête pour observer Tarik tomber après en avoir reçu
 cinq dans le torse et le visage. Gath se releva, la respiration si
 bruyante qu'elle était seulement dépassée par le résonnement de son
 propre coeur. Pourtant il était habitué à la guerre, mais depuis qu'il
@@ -521,7 +521,7 @@ paralysante. Se servant de sa force physique supérieure, il repoussa des
 deux mains l'opposant et quand celui-ci revint, l'allonge fut suffisante
 pour le trancher horizontalement. Un pas en avant malgré lui, il tira
 l'aiguille de son corps en hurlant, cherchant le lieutenant-colonel
-'''Heyam''' du regard, mais il n'y avait rien d'autre que de la boue,
+**Heyam** du regard, mais il n'y avait rien d'autre que de la boue,
 une soupe de sueur qui mijotait sous les épaulettes de son armure et
 heaume qui lui rappait la peau du nez.
 
@@ -566,7 +566,7 @@ et il s'écroula dans un dernière complainte, la gueule enfoncée dans une
 terre qui l'a vue naître. Heyam s'en laissa descendre et tendit le doigt
 pour montrer le prince de ce royaume de boue.
 
-— « '''Captur… !''' »
+— « **Captur… !** »
 
 Un carreau de balistre Atalentienne le transperça avec une telle force
 que les entrailles du commandant s'allongèrent sur la moitié du
@@ -586,7 +586,7 @@ Le second de Heyam, Manne, rengaina son arc aussitôt et hurla d'une voix
 tremblante un ordre que tous comprirent d'une mauvaise façon, car leur
 mission ne comportait à présent plus d'exception :
 
-— « '''Tuez-les tous ! TUEZ-LES TOUUUUUS !''' »
+— « **Tuez-les tous ! TUEZ-LES TOUUUUUS !** »
 
 Dès lors Gath oublia tout le reste et suivit cet ordre qui voulait plus
 ou moins dire : Ce sont eux ou nous.
@@ -641,18 +641,18 @@ quittant le sol.
 
 --------------
 
-— '''« Donnez moi un rapport sur la situation, TOUT DE SUITE ! »''' — Le
+— **« Donnez moi un rapport sur la situation, TOUT DE SUITE ! »** — Le
 commandant Aswell beugla presque son ordre à son second.
 
 Son officier expira son air d'un ton paniqué, se coupant lui-même
 l'opportunité de répondre à un ton militaire.
 
-— '''« Le Dorila ne répond plus mon commandant ! Les vigies indiquent
-qu'il est en train de s'écraser en pleine forêt ! »'''
+— **« Le Dorila ne répond plus mon commandant ! Les vigies indiquent
+qu'il est en train de s'écraser en pleine forêt ! »**
 
 Edin rajouta à sa suite, l'air non moins affolé que son camarade.
 
-— '''« L'infanterie ne répond plus non plus, commandant ! »
+— **« L'infanterie ne répond plus non plus, commandant ! »
 
 L'homme barbu écrasa ses grandes mains sur le pupitre de commande avec
 rage, certain de son ordre comme tout chef doit l'être. Il regarda cet
@@ -661,20 +661,20 @@ navigation, au travers du verre. Le regard passait de gauche à droite et
 revenait sans cesse. Même à cinquante mètre de hauteur, le sang était
 tellement présent au sol qu'il assombrissait leur vision.
 
-— '''« Évidemment qu'ils ne répondent plus, vous avez vu dans quelle
-merde ils sont ! Le sang pourrait gicler jusqu'au cockpit ! »'''
+— **« Évidemment qu'ils ne répondent plus, vous avez vu dans quelle
+merde ils sont ! Le sang pourrait gicler jusqu'au cockpit ! »**
 
-— '''« Devons nous faire feu, mon commandant ?! »'''
+— **« Devons nous faire feu, mon commandant ?! »**
 
-— '''« Et sur quoi ?! Nos hommes ?! Et je ne veux pas qu'ils nous
+— **« Et sur quoi ?! Nos hommes ?! Et je ne veux pas qu'ils nous
 abordent comme ils ont eu Migaïls ! Montez par Pwyll, nom de nom !
 MONTEZ ! ET DE FLANC ! Soyez prêt à faire feu si nous avons une fenêtre
-! »''' — Cinq années d'équipe avec le dirigeable Dorila après 5 ans
+! »** — Cinq années d'équipe avec le dirigeable Dorila après 5 ans
 d'école d'officier de l'air, et voilà qu'Aswell savait qu'il ne volerait
 plus avec son camarade.
 
-La réponse se fit militaire, rassurée et synchronisée. — '''«
-OUI COMMANDANT ! »'''
+La réponse se fit militaire, rassurée et synchronisée. — **«
+OUI COMMANDANT ! »**
 
 --------------
 
@@ -685,7 +685,7 @@ en noir ne s'étant même pas arrêtés pour les affronter. La mort était
 venue d'en haut sans prévenir, sans une once de pitié. Un, encore vivant
 pour quelques secondes, tendit la main vers sa camarade morte qui était
 pendue à l'arbre voisin. Il poussa un dernier soupir avec cette pensée.
-''Elle venait de dire oui pour un rendez-vous …''.
+**Elle venait de dire oui pour un rendez-vous …**.
 
 San hocha le visage pour ses frères noirs alors qu'ils arrivaient en
 dessous de l'oiseau de fer qui montait encore et encore. Chi-so s'arrêta
@@ -703,8 +703,8 @@ frères qui tenaient de toutes leurs forces la catapulte improvisée. Un
 frère mit un long grappin dans le dos de San, et celui-ci enfila les
 étriers qu'on venait de rajouter sur l'Achebusedo.
 
-Un dernier regard pour se calibrer, et il s'accroupit. Un '''« IYA !
-»''' sonna le tir d'un projectile humain. La cible arrive à la rencontre
+Un dernier regard pour se calibrer, et il s'accroupit. Un **« IYA !
+»** sonna le tir d'un projectile humain. La cible arrive à la rencontre
 de San à toute allure et c'est sur son instinct qu'il peut compter.
 C'est sur son instinct qu'il doit compter. La dernière vision d'arriver
 suffit. Les yeux écarquillés d'un soldat léger. San dégaine le grappin
@@ -756,7 +756,7 @@ d'eux par les corps et l'onde de chocs de l'explosion des canons.
 Il ouvrit les yeux plus grand quand il s'aperçut que les guerriers noirs
 avaient aussi pris le second monstre de fer.
 
-— '''« Maître ! MAÎTRE ! MAAAAAÎîîtTRRRREEE ! »'''
+— **« Maître ! MAÎTRE ! MAAAAAÎîîtTRRRREEE ! »**
 
 Mais déjà Chan ne l'entendait plus et n'était plus visible. Pendant un
 instant. Puis il vit un lancier disparaître un hurlant vers la mêlée,
@@ -774,8 +774,8 @@ pestant silencieusement.
 
 --------------
 
-— '''« Ah … Elle sera sûrement en colère … Je vais revoir son balai …
-Avec le sourire … »'''
+— **« Ah … Elle sera sûrement en colère … Je vais revoir son balai …
+Avec le sourire … »**
 
 Ils remuèrent leurs armes dans la poitrine et le dos du prince, ce qui
 le fit rompre sa respiration par une toux de sang. Ils lui hurlèrent des
@@ -803,7 +803,7 @@ poser et éloigne les guerriers en métal. Elle s'empare du prince et le
 tire de l'eau. Il sourit, balloté par les mains étonnamment puissantes
 de sa fiancée.
 
-— '''« Non … Non … Chizue … Tu sais bien mon honneur … »''' - Il sourit
+— **« Non … Non … Chizue … Tu sais bien mon honneur … »** - Il sourit
 de plus en plus, ravi qu'elle l'emmène loin du sang, elle est la seule
 pour qui il abandonnerait son honneur. Avec son regard d'ange et ses
 petites courses affolées. Ses étonnements si mignons.
@@ -813,11 +813,11 @@ centaines de mètres de la bataille, Chan, les yeux blancs, tousse de
 nouveau le précieux liquide rouge. Il sourit en posant sa main sur la
 joue de son guerrier, qui écarquille les yeux.
 
-— '''« Mon prince … ? »'''
+— **« Mon prince … ? »**
 
 La seule réponse du prince portera treize pieds.
 
-— '''« Tu es venue et je repars avec toi … »'''
+— **« Tu es venue et je repars avec toi … »**
 
 La main armurée de bois tombe inerte dans l'herbe, entre la terre et le
 ciel. Tageshi hurle. La femme en noir fait les signes rituels.
