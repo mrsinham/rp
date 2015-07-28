@@ -139,7 +139,7 @@ préparé au pire, la situation le laisse sans voix. Silencieuse, emplie
 d'hostilités, Noreela lui passe devant, glacée. Persuadé qu'elle est au
 bord du suicide, il affronte sans grande difficulté sa soeur Nhinna,
 reprend la garde de Noreela et obtient son intégration quasi immédiate
-au sein du prestigieux [[lycée militaire d'Atalentis]].
+au sein du prestigieux lycée militaire d'Atalentis.
 
 Le retour à un semblant de vie normale
 --------------------------------------
@@ -152,7 +152,7 @@ professeurs du lycée militaire; ceux-ci notent bien vite sa volonté
 d'adaptation et de rattraper le temps perdu. Ses notes remontent plus
 vite qu'elles n'avaient plongé. Ses matières préférées semblent être la
 stratégie, et plus précisément la stratégie en combat urbain et
-l'enseignement de sa classe de [[knight]]. Il est toutefois difficile de
+l'enseignement de sa classe de knight. Il est toutefois difficile de
 résumer les préférences de Noreela. Celle-ci se passionne pour ses
 nouvelles études, dévorent tous les ouvrages qu'elle peut. Son temps
 libre est consacré à la reconstitution de scènes de batailles anciennes,
@@ -161,8 +161,8 @@ théatre tirées de ces grands conflits. Il n'est pas dur de deviner
 qu'elle a hâte d'aller voir ces pièces en personne, rongeant son frein
 en silence dans un manoir plongé dans le deuil. Une seule matière
 souffrait durablement de la situation. En effet, Noreela est l'une des
-rares bi-classes d'Atalentis. [[Knight]] par son père, elle était aussi
-[[alchimiste]] par sa mère. Mais la deuxième classe, trop liée au deuil,
+rares bi-classes d'Atalentis. Knight par son père, elle était aussi
+alchimiste par sa mère. Mais la deuxième classe, trop liée au deuil,
 était une gigantesque friche d'où parfois les professeurs réussissaient
 à arracher une forme extirpée de la matière.
 
@@ -309,7 +309,7 @@ d'entrainements. Sous les hurlements des élèves, un gigantesque sceau
 s'étale sous les pieds de Noreela qui se retrouve coincée contre un des
 murs porteurs de la salle. L'énorme forme noire sortit du sceau, enfonça
 le bois sous ses pattes, défonça le toit de sa haute taille. En plus de
-Li Ara, Noreela venait également de rencontrer [[Poupin]]. Piégée,
+Li Ara, Noreela venait également de rencontrer Poupin. Piégée,
 Noreela ne pouvait que brandir ses bâtons de bois devant elle et
 encaisser son imminente et sûrement proche mort. Le dragon hurla de
 rage, convaincu que sa maîtresse l'avait appelé pour la défendre.
@@ -371,7 +371,7 @@ civile. Pour les autres, beaucoup choisissaient malgré tout l'armée, et
 si possible un corps parmi elle. Du choix effectué dépendait les cours
 dispensées; l'élève avait malgré tout encore le choix du doute et, là
 encore, ses options restaient le plus généralistes possibles. Et les
-autres demandaient à intégrer la prestigieuse [[Garde d'Atalentis]].
+autres demandaient à intégrer la prestigieuse Garde d'Atalentis.
 Evidemment, Noreela était de ceux-là. Plus étonnamment, Li Ara aussi.
 
 Plus étonnamment pour ceux ne prenant pas la peine de les connaître. En
