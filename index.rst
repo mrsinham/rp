@@ -8,6 +8,12 @@ Test de table des matières
 
 .. toctree::
    :maxdepth: 2
+   :caption: Chroniques d'Édipha
+
+   edipha/chronique/index
+
+.. toctree::
+   :maxdepth: 2
    :caption: Personnages d'Édipha
 
    edipha/personnage/index
@@ -17,3 +23,9 @@ Test de table des matières
    :caption: Personnages d'Atale
 
    atale/personnage/index
+
+.. toctree::
+   :maxdepth: 2
+   :caption: Chroniques d'Atale
+
+   atale/chronique/index
