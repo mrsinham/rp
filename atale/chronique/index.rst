@@ -5,4 +5,6 @@ Chroniques d'Atale
 .. toctree::
 	:maxdepth: 2
 
-	nord_regarde_sud.rst
+	fondation_atale
+	mythe_erin
+	nord_regarde_sud

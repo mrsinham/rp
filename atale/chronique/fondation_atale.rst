@@ -1,0 +1,25 @@
+Fondation d'Atale
+=================
+
+La fondation d'Atale se perd dans le brouillard des neiges venues du grand Nord.
+
+Il est dit que la guerre et la maladie ravageaient les anciennes terres bénies des Dieux. Que les Dieux ont dû condamné le peuple ancêtre à l'errance, pour sa propre survie, en lui promettant que son destin serait ailleurs. Qu'Arianrhod, mère et protectrice, versant des larmes de douleur devant tant de malheur à venir, jura au peuple ancêtre que bientôt, un guide viendrait parmi eux et les sauverait.
+Il est dit que le peuple ancêtre errait dans le blizzard, sans notion du temps, oubliant peu à peu le soleil. Il s'arrêtait dans les grottes, dans les creux des souches, sous les branches tombantes des grands pins. Les épines sèches des sapins enflammaient le bois noyé de neige, les uns se serrant contre les autres pour se tenir chaud. Priant la lune de les guider vers son époux le soleil, de leur laisser la lumière de l'espoir. Vaille que vaille, il avançait, attendant la naissance de celui qui leur rendrait une terre, priant chaque jour pour que l'espoir ne disparaisse pas, et le peuple ancêtre avec lui.
+Il est dit que le peuple ancêtre a vu naître en son sein celui qui le guidera dans le blizzard et la neige éternelle. Il répondait au nom étrange de Pwyll, mais sa mère, en le mettant au monde, cria qu'il serait la Raison de son peuple.
+Il est dit que l'errance du peuple ancêtre se ralentit ; les pins les abritèrent de plus en plus souvent, jusqu'au bord du monde où le vent se tue enfin.
+Il est dit que le jour de ses 20 ans, Pwyll dégaina son épée, fendit en deux les nuages lourds de neige et qu'enfin le peuple ancêtre revit le soleil. Alors qu'ils pleurèrent de joie, tombant à genoux pour saluer la fin de l'épreuve et remercier leur guide, Pwyll pointa sa lame vers la vallée se déroulant à leurs pieds. « Ici sera notre maison. Ici, nous reprendrons des forces pour grandir. »
+
+
+
+Il est dit que Pwyll construisit sa première maison dans le cœur de la vallée la plus paisible où le peuple ancêtre posa son pied. Très au Nord de l'actuelle Atale, qui donne autant son nom au pays fondé qu'à sa capitale.
+Il est dit que Pwyll, assis sur le tronc de l'énorme pin qui allait donner sa force pour supporter la toiture de sa demeure, vit passer une jeune femme aux cheveux aussi blonds que le soleil, à la peau aussi laiteuse que la protectrice Lune, aux yeux aussi bleus que l'eau purificatrice. Elle disparut aussi vite qu'elle était apparue devant ses yeux. Bondissant sur ses pieds, il demanda à tous ses voisins, eux aussi en train de construire leurs nouveaux foyers, s'ils avaient vu cette déesse à visage humain passer. Tous présentèrent leurs excuses, mais aucun ne l'avait remarqué.
+Au deuxième jour, alors qu'il débitait les branches, tranchait l'écorce, ôtait les nœuds, Pwyll revit sa vision passer devant lui. N'écoutant que son cœur, il se mit à courir derrière elle. Mais, là encore, elle disparût au détour d'un ancêtre des pins massif et large. Désespéré, il eut toutes les peines du monde à se remettre à son œuvre. Mais il ne pouvait cesser de guider son peuple ; et s'il arrêtait maintenant sa demeure, son peuple mourrait de froid au retour du blizzard.
+Au troisième jour toutefois, Pwyll guettait l'apparition de cette beauté qui l'avait hanté deux nuits durant. Au premier bruit de sabot qu'il entendit, et alors qu'il préparait les leviers pour monter sa poutre maitresse, il bondit sur le chemin et cria « Belle dame à la chevelure du Soleil, quel est votre nom ? » Le temps s'arrêta, le soleil fendit de nouveau les nuages alors qu'elle se retourna pour lui sourire. « Tu connaîtras mon nom que le jour de notre mariage, grand Roi. »
+Ainsi Pwyll rencontra sa femme Rhiannon, la future « Grande Reine ».
+
+
+Il est dit qu'hélas, le guide n'eut pas d'autre choix que de fonder sa ville sur le ferment de la guerre.
+Rhiannon était hélas promise au fils du peuple voisin. Mais qu'elle fuyait cette union qu'elle réprouvait, car condamnait son peuple à la soumission de son voisin. Quelle différence avec notre mariage, lui demanda le guide, alors qu'il abaissait son genou en terre pour faire sa demande. Notre union m'est charmante et ton peuple acceptera le mien, répondit-elle en tendant sa fine main laiteuse pour accepter la proposition qu'il n'avait pas encore formulée.
+Il est dit qu'à l'annonce de ce mariage, Havgan, le promis rejeté, entra dans une noire colère et jura la perte de ce qui n'était même pas encore notre nation. Il prit les armes, équipa ses combattants et remonta son pays jusqu'aux jeunes et maigres frontières de notre pays.
+Il est dit que Pwyll, n'écoutant que son courage, prit son marteau, son épée et son cheval pour protéger son peuple épuisé par des années d'errance. Avant même qu'il n'ait eu le temps de réfléchir, sa fiancée remonta également sa jument et sortit sa dague. Jurant de mourir libre et amoureuse, plutôt que vivre enchainée.
+Il est dit que la bataille fut une cinglante victoire sur les ennemis, amenant le soleil et repoussant au loin les nuages et la neige. Bien que fondée dans le sang, Atale fut aussi fondée sur l'amour.
