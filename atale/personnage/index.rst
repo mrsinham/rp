@@ -6,4 +6,5 @@ Personnages d'Atale
 	:maxdepth: 2
 
 	mickail
+	natheo
 	noreela
