@@ -20,6 +20,12 @@ Test de table des matières
 
 .. toctree::
    :maxdepth: 2
+   :caption: Édipha
+
+   edipha/lieu/index
+
+.. toctree::
+   :maxdepth: 2
    :caption: Personnages d'Atale
 
    atale/personnage/index
