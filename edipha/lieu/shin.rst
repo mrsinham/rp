@@ -41,4 +41,4 @@ Le commerce et l'échange sont une grande partie de l'économie de la ville, car
 Le Temple des 108 perles
 ------------------------
 
-Sous ce nom se trouve le père de tous les temples du pays, la tête de l'office religieux en Édipha. Cet immense complexe qui l'on dit composé d'une centaine de temples sur leur propre terrasse est une ville en elle-même, séparé de la ville par son pont de pierre. Il se trouve à la gauche du palais impérial et ne touche la montagne que par son sanctuaire le plus sacré, l'Herbe des Écailles. Ce temple contient l'aire où les rares [[ryudokans]] du pays atterrissent avec leurs dragons.
+Sous ce nom se trouve le père de tous les temples du pays, la tête de l'office religieux en Édipha. Cet immense complexe qui l'on dit composé d'une centaine de temples sur leur propre terrasse est une ville en elle-même, séparé de la ville par son pont de pierre. Il se trouve à la gauche du palais impérial et ne touche la montagne que par son sanctuaire le plus sacré, l'Herbe des Écailles. Ce temple contient l'aire où les rares Ryudokans du pays atterrissent avec leurs dragons.
