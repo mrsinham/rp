@@ -37,15 +37,15 @@ Ainsi il n'a pas été rare dans l'histoire qu'une école très proche des deux 
 
 La forme déclarée comme la plus pure du concept original est enseigné par deux écoles : 
 
-* ''L'école de la Fleur des Sens'' ou école du temple de Shin.
+* **L'école de la Fleur des Sens** ou école du temple de Shin.
 
 L'école du temple cherche à garder une approche pure de la voie des fleurs bien qu'il soit certain que cette forme soit déjà très éloignée et ait déjà intégré beaucoup d'art venant de tout Edipha. Depuis la stabilisation de l'enseignement vers la réunification du temple il y a mille an, l'enseignement a été écrit et solidifié dans les principes enseignés par le temple. Comme il est dit que l'origine d'Edipha se perd dans la nuit des temps, on a que peu d'idée à quel point il est éloigné.
 
-* ''L'école de la Fleur de Révolte'' ou l'école lointaine de Tsan-Shen.
+* **L'école de la Fleur de Révolte** ou l'école lointaine de Tsan-Shen.
 
 Depuis une révolte paysanne il y a plusieurs centaines d'années, l'école de la Fleur de Révolte a gardé un style très proche de la version d'origine. Il est dit qu'un professeur de la Fleur des Sens est venu donner aux paysans les armes pour se révolter contre un Seigneur Local tyran qui gardait le secret à la royauté sur comment il traitait ses sujets. Cette école est ouverte à tous et est très respectée pour sa piété.
 
-Les autres écoles s'éloignent plus ou moins du style, certaines ayant juste des différences de regard, d'autres des techniques carrément différentes, une des plus éloignée étant la secrète organisation des [[Ombres]] (La technique de ''L'ombre en chaque homme'', dans son nom complet), affiliée au [[Yin]] car leur dogme est passé dans l'extrême de l'oubli de soi.
+Les autres écoles s'éloignent plus ou moins du style, certaines ayant juste des différences de regard, d'autres des techniques carrément différentes, une des plus éloignée étant la secrète organisation des Ombres (La technique de **L'ombre en chaque homme**, dans son nom complet), affiliée au Yin car leur dogme est passé dans l'extrême de l'oubli de soi.
 
 Les différentes techniques
 --------------------------
@@ -54,7 +54,7 @@ Les différentes techniques
 
 * **Les paumes spirituelles** ou la technique du combat par ondes de qi. Là où les aspirants de la voie du tigre sont spécialistes dans l'écrasement du corps de l'adversaire avec des techniques redoutables, les aspirants des Paumes Spirituelles sont très craints aussi, car leurs attaques sans effet apparent vont couper le flux de qi dans le corps de l'adversaire. A haut niveau, elles pourront même couper tendon et faire éclater des muscles sans qu'un choc se produise.
 
-* ''Le doigt de l'éveillé'' Cette technique, au lieu d'utiliser les paumes, repose sur le même principe que les paumes spirituelles mais à une échelle beaucoup plus réduite. Elle permet d'atteindre des centres nerveux là où les paumes sont une techniques beaucoup plus offensive, mais beaucoup plus chaotiques aussi. Le contrôle est la clé. Le pendant Tigre est de cette technique est la **Griffe de Lan**.
+* **Le doigt de l'éveillé** Cette technique, au lieu d'utiliser les paumes, repose sur le même principe que les paumes spirituelles mais à une échelle beaucoup plus réduite. Elle permet d'atteindre des centres nerveux là où les paumes sont une techniques beaucoup plus offensive, mais beaucoup plus chaotiques aussi. Le contrôle est la clé. Le pendant Tigre est de cette technique est la **Griffe de Lan**.
 
 * **La lance blanche** est la pratique de la naginata, cette grande lance. A noter que comme toutes les pratiques de l'Art des Fleurs, elle est très associée avec des mouvements circulaires afin de se protéger dans son [[cercle de soi]].
 
