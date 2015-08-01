@@ -1,5 +1,5 @@
-Vêtements Édiphans
-==================
+Vêtements
+=========
 
 Mixtes
 ------
