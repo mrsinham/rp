@@ -1,4 +1,4 @@
-Noreela de Meredith
+Noreela de Flail
 ===================
 
 Noreela de Flail, fille de Nualàn de Flail et de Reeman de
