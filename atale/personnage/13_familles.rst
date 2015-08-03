@@ -1,7 +1,7 @@
-Treize familles d'Atale
-=======================
+Les treize familles d'Atale
+===========================
 
-Atale est à l'origine gouverné par treize famille qui se partageaient la royauté tous les cinq ans. Depuis l'accession de _`Mickail de Cerafyn <mickail>` à la monarchie, le trône est réservé à la seule famille des Cérafyn. Il y a trois cercle de puissance dans ces familles :
+Atale est à l'origine gouverné par treize famille qui se partageaient la royauté tous les cinq ans. Depuis l'accession de :doc:`Mickail de Cerafyn <mickail>` à la monarchie, le trône est réservé à la seule famille des Cérafyn. Il y a trois cercle de puissance dans ces familles :
 
 Les trois premières
 -------------------
