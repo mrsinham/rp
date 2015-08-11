@@ -1,5 +1,5 @@
-Noreela de Meredith
-===================
+Noreela de Flail
+================
 
 Noreela de Flail, fille de Nualàn de Flail et de Reeman de
 Flail, est colonel au sein de la Garde royale d'Atalentis. Meilleure
@@ -37,8 +37,8 @@ Généralités
 Enfance
 -------
 
-Noreela est une fille unique et désirée. Ses parents ont convolé en
-noces amoureuses environ une année auparavant et souhaitaient ardemment
+Noreela est une fille unique et désirée. Ses parents ont convolé en noces 
+amoureuses environ une année auparavant et souhaitaient ardemment
 un enfant pour compléter leur bonheur. Au petit matin de décembre, alors
 que la neige tombe fortement sur Atalentis, vient au monde Noreela. Beau
 bébé aux boucles brunes caractéristiques de la famille, elle pèse 4kg et
