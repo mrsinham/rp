@@ -69,7 +69,7 @@ L'époque contemporaine
   * Li Ara
   * Nobuki
 
-* _`Sanji no Ransu-Hana <../personage/sanji-no-ransu-hana>`
+* :doc:`Sanji no Ransu-Hana <../personnage/sanji-no-ransu-hana>`
 * le Grand Temple
 * Zanzo
 * Chizue
