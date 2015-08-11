@@ -26,6 +26,12 @@ Le pays d'Édipha
 	art_fleur
 	art_tigre
 
+.. toctree::
+	:maxdepth: 2
+	:caption: La religion
+
+	religion
+
 Edipha est un des plus anciens royaumes du super-continent maintenant conquis par Atalentis. Là où Atale a environ un millier d'années, Edipha en aurait plus de 8.000.
 Le pays s'étend sur plusieurs centaines de kilomètres, environ 700 sur son axe est ouest et 500 sur son axe nord sud.
 
