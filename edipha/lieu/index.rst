@@ -6,6 +6,7 @@ Le pays d'Édipha
 	:caption: La nature
 
 	flore
+	faune
 
 .. toctree::
 	:maxdepth: 2

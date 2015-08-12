@@ -1,4 +1,4 @@
-La faune
+La Faune
 ========
 
 Les brameurs étoilés
