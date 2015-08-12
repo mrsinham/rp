@@ -11,7 +11,7 @@ Personnages d'Édipha
 
 .. toctree::
 	:maxdepth: 2
-	Prêtres / Prêtresses
+	:caption: Prêtres / Prêtresses
 
 	laha-di
 	akija
