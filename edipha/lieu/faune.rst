@@ -13,3 +13,7 @@ Les grues gargoteuses
 
 Les grues sont des oiseaux à long cou et grandes pattes appartenant au groupe des échassiers migrateurs. Cette espèce comme la trentaine qui se trouve en édipha migre lors de la demi mousson vers le sud et les lagons. La particularité des grue gargoteuses est d'avoir des poches sous les becs pour pouvoir retenir l'eau de pluie, rendant l'animal capable de nicher dans des paroies pauvres en eau mais de récupérer en contrebas l'eau pour elles et leurs petits.
 
+Les Tigres et Tigres blancs
+---------------------------
+
+Magnifiques mais dangereuses créatures, celles-ci sont des prédateurs craints par tout le monde. De 200 à 300 kg, ces animaux comptent parmi les félins classiques les plus grands du monde. 
