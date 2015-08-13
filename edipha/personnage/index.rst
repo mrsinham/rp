@@ -18,6 +18,7 @@ Personnages d'Édipha
 	akija
 	zanzo
 	hy-lan
+	chizue
 
 .. toctree::
 	:maxdepth: 2
