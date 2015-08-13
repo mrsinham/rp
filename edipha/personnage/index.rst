@@ -7,6 +7,7 @@ Personnages d'Édipha
 	:caption: No Hana
 
 	sanji-no-ransu-hana
+	hijohito
 	di-hamina-no-hana
 
 .. toctree::
@@ -17,3 +18,10 @@ Personnages d'Édipha
 	akija
 	zanzo
 	hy-lan
+
+.. toctree::
+	:maxdepth: 2
+	:caption: Dragons
+
+	chizana
+	heru

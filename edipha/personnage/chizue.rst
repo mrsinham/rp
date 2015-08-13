@@ -1,7 +1,7 @@
 Chizue Manjughosi
 =================
 
-Prêtresse du temple des 108 perles de Shin, elle est aussi la ryudokan de Chizana, le dragon de la lumière. Elle est l'élève adorée de :doc:`Laha-Di Gozen <laha-di>`
+Prêtresse du temple des 108 perles de Shin, elle est aussi la ryudokan de Chizana, le dragon de la lumière. Elle est l'élève adorée de :doc:`Laha-Di Gozen <laha-di>`.
 
 
 Manjughosi
