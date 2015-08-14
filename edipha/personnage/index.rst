@@ -10,6 +10,7 @@ Personnages d'Édipha
 	hijohito
 	di-hamina-no-hana
 	chan
+	nobuki
 
 .. toctree::
 	:maxdepth: 2
