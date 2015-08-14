@@ -9,6 +9,7 @@ Personnages d'Édipha
 	sanji-no-ransu-hana
 	hijohito
 	di-hamina-no-hana
+	chan
 
 .. toctree::
 	:maxdepth: 2
