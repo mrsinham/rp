@@ -16,3 +16,4 @@ Personnages d'Atale
 	:caption: Les 13 familles
 
 	13_familles
+	flail
