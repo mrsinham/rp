@@ -22,6 +22,12 @@ Le pays d'Édipha
 
 .. toctree::
 	:maxdepth: 2
+	:caption: La politique
+
+	clans
+
+.. toctree::
+	:maxdepth: 2
 	:caption: Le Qi
 
 	art_fleur

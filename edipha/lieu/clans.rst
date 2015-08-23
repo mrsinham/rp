@@ -40,3 +40,27 @@ Ainsi, c'est dans ces régions que les kimonos diffèrent et que les kimonos de 
 * Le clan des salamandres
 * Le clan des scarabés béliers
 
+Les clans
+---------
+
+Le clan des tigres-nuages
++++++++++++++++++++++++++
+
++------------------------+--------------------------------------------+
+| Clan des tigres-nuages | Taigā kuraudo                              |
++========================+============================================+
+| Dirigeant              | Masashi Mayatama                           |
++------------------------+--------------------------------------------+
+| Effectifs              | 7500 hommes                                |
++------------------------+--------------------------------------------+
+| Emblême                | Deux tigres en yin-yang, sur fond de nuage |
++------------------------+--------------------------------------------+
+| Région                 | Taigä  (croissant ouest de Shin)           |
++------------------------+--------------------------------------------+
+
+Masashi Mayatama
+""""""""""""""""
+
+Long héritier de la dynastie des Mayatama, Masashi est un samouraï de 57 ans portant un bouc et une moustache. Son crâne rasé porte une natte repliée sur celui-ci et il porte son armure pour la moindre occasion, mal à l'aise de ne porter qu'un kimono. Les Mayatama possèdent quatre chateaux à eux, dont les très importants Doko-zaishi et Taka-zaishi qui gardent l'entrée du pays. Cet homme est l'archétype du samouraï fier et sa vie est dévouée à ces principes. Tétu, il est rare de le voir changer d'avis sur une chose même si cela ne le rend pas idiot non plus. Il n'hésitera pas à voir quelque chose d'idiot et de réagir. Mais quand quelque chose va… il reste sur ses positions. 
+
+Il ne combat plus depuis 10 ans environ mais ses fils, Yotama et Data sont des grands guerriers qui continuent à représenter leur père sur les champs de bataille. Leur niveau est excellent et il est rare de voir des guerriers avoir un niveau similaire au leur. Ce sont deux élémentalistes de feu et d'air qui savent très bien utiliser le duos de leurs éléments, tout en combattant au sabre.
