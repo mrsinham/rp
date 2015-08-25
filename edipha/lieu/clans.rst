@@ -57,6 +57,8 @@ Le clan des tigres-nuages
 +------------------------+--------------------------------------------+
 | Région                 | Taigä  (croissant ouest de Shin)           |
 +------------------------+--------------------------------------------+
+| Cloches                | 702                                        |
++------------------------+--------------------------------------------+
 
 Masashi Mayatama
 """"""""""""""""
@@ -64,3 +66,66 @@ Masashi Mayatama
 Long héritier de la dynastie des Mayatama, Masashi est un samouraï de 57 ans portant un bouc et une moustache. Son crâne rasé porte une natte repliée sur celui-ci et il porte son armure pour la moindre occasion, mal à l'aise de ne porter qu'un kimono. Les Mayatama possèdent quatre chateaux à eux, dont les très importants Doko-zaishi et Taka-zaishi qui gardent l'entrée du pays. Cet homme est l'archétype du samouraï fier et sa vie est dévouée à ces principes. Tétu, il est rare de le voir changer d'avis sur une chose même si cela ne le rend pas idiot non plus. Il n'hésitera pas à voir quelque chose d'idiot et de réagir. Mais quand quelque chose va… il reste sur ses positions. 
 
 Il ne combat plus depuis 10 ans environ mais ses fils, Yotama et Data sont des grands guerriers qui continuent à représenter leur père sur les champs de bataille. Leur niveau est excellent et il est rare de voir des guerriers avoir un niveau similaire au leur. Ce sont deux élémentalistes de feu et d'air qui savent très bien utiliser le duos de leurs éléments, tout en combattant au sabre.
+
+
+Le clan
+"""""""
+
+Le clan est le plus célèbres de tous, non seulement de par sa puissance militaire mais aussi par sa loyauté au trône. L'élite de l'élite se trouve ici, formée par des écoles de combats diverses et très réputées. L'équipement n'est pas en reste aussi car ils disposent de nombreux mages et prêtres de combats, ainsi que des canons à poudre assez perfectionnés. Leur domaine comprends environ 702 cloches, ce qui en fait un des plus puissants territoire qui soit.
+
+
+
+Le clan du poisson doré
++++++++++++++++++++++++
+
++----------------------+-------------------------------+
+| Clan du poisson doré | Kin no sakana                 |
++======================+===============================+
+| Dirigeant            | Otomo Etakina                 |
++----------------------+-------------------------------+
+| Effectifs            | 7000 hommes                   |
++----------------------+-------------------------------+
+| Emblême              | La carpe sacrée, bleue et or  |
++----------------------+-------------------------------+
+| Région               | Meigä (croissant est de Shin) |
++----------------------+-------------------------------+
+| Cloches              | 670                           |
++----------------------+-------------------------------+
+
+Otomo Etakina
+"""""""""""""
+
+Cet homme à grande spiritualité est de son propre avoeu un samouraï-moine. Très croyant, cela s'en retrouve souvent dans sa tenue et ses accessoires. Ainsi, son mala est toujours à portée, que ce soit dans la main ou dans une poche de manche. Il porte des cheveux longs reliés par des tiges de fer à l'horizontale et du haut de ses 31 ans, il est assez bel homme. Adepte du qi neutre, il est souvent à attendre que l'occasion se présente, ce que ses détracteurs appellent de la lacheté et de ses supporters de la stratégie. Il n'est pas rare d'ailleurs qu'il ait obtenu d'inattendues victoires car comme la carpe, il apparaît faussement nonchalant.
+
+Le clan
+"""""""
+
+Le clan est à peu près au même niveau que les tigres-nuages, bien que légèrement inférieur. Néanmoins les Mayatama savent très bien qu'il serait pure folie de se fâcher avec leurs voisins, non seulement à cause du terrain mais aussi de la faible différence de force. Canons, mages, les Poissons dorés sont leur quasi équivalent.
+
+
+Le clan des cîmes brûmeuses
++++++++++++++++++++++++++++
+
++--------------------------+-----------------------------------+
+| Clan des cîmes brûmeuses | Kiri no Piku                      |
++==========================+===================================+
+| Dirigeant                | Satana Enahatiko                  |
++--------------------------+-----------------------------------+
+| Effectifs                | 5200 hommes                       |
++--------------------------+-----------------------------------+
+| Emblême                  | Le mont Tisan, sur fond de nuages |
++--------------------------+-----------------------------------+
+| Région                   | Rotogä (sud de Shin)              |
++--------------------------+-----------------------------------+
+| Cloches                  | 310                               |
++--------------------------+-----------------------------------+
+
+Satana Enahatiko
+""""""""""""""""
+
+Satana est une des rares femmes qui dirigent un clan en Édipha, bien que techniquement elle ne soit pas le leader désigné. En effet, son mari Fusan était l'ancien leader des Enahatiko. Après son décès, son fils de 3 ans Susanoo doit lui succéder mais trop jeune, c'est donc sa mère qui règne en régente. Afin de protéger son fils ou son propre pouvoir selon les points de vue, elle n'a pas hésité à faire raser les vassaux les plus entreprenants. Chose étonnante donc, elle n'est pas une kunoïchi mais une dame noble de 27 ans au caractère bien trempé.
+
+Le clan
+"""""""
+
+Le clan est un clan de montagnards avertis, capables de se battre en très haute altitude et sur des terrains extrêmement pentu grâce à des techniques de filin et de crochets. On les surnomme les samouraï funambules car pendant que leurs ennemis peinent à les rejoindre, ils s'accrochent dans la pente pour combattre sans heurt. Leurs archers se suspendent aux parois pour utiliser la gravité comme alliée. Ils sont réputés pour leur francs parlers et leur goût du risque.
