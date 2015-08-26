@@ -129,3 +129,33 @@ Le clan
 """""""
 
 Le clan est un clan de montagnards avertis, capables de se battre en très haute altitude et sur des terrains extrêmement pentu grâce à des techniques de filin et de crochets. On les surnomme les samouraï funambules car pendant que leurs ennemis peinent à les rejoindre, ils s'accrochent dans la pente pour combattre sans heurt. Leurs archers se suspendent aux parois pour utiliser la gravité comme alliée. Ils sont réputés pour leur francs parlers et leur goût du risque.
+
+
+
+Le clan des grands pieds
+++++++++++++++++++++++++
+
++-----------------------+-------------------------+
+| Clan des grands pieds | Sai                     |
++=======================+=========================+
+| Dirigeant             | Makoto Eniishi          |
++-----------------------+-------------------------+
+| Effectifs             | 5700 hommes             |
++-----------------------+-------------------------+
+| Emblême               | Le rhinocéros blanc     |
++-----------------------+-------------------------+
+| Région                | Senchigä (nord de Shin) |
++-----------------------+-------------------------+
+| Cloches               | 420                     |
++-----------------------+-------------------------+
+
+
+Makoto Eniishi
+""""""""""""""
+
+Makoto est un jeune homme de 16 ans qui vient de prendre la gouvernance de ses troupes. Il est néanmoins très respecté non seulement grâce à ses talents de combattant mais aussi parce qu'il est le protégé d'à la fois la femelle rhinocéros Sasen et de la matriarche éléphante Desega. Les deux animaux deviennent très nerveux lorsque que quelqu'un touche le jeune homme et menace très clairement en martelant le sol. En retour, il prends très soin des animaux et est un homme assez doux. Il aime néanmoins les défis et la bataille, aimant clairement se sentir vivre. À noter qu'il a une grande soeur, Fuu, très réputée pour sa beauté et qui a éconduit beaucoup de prétendants, qui semble beaucoup le conseiller.
+
+Le clan
+"""""""
+
+Vivant dans une région ou les plaines sont plus larges, le clan a su tirer des avantages indéniaux de l'endroit. Non seulement ils produisent beaucoup de culture, ce qui rend la région assez riche, mais ils ont pu dresser les majestueux animaux qui peuplent l'endroit. Il est dit que c'est une alliance mutuelle pour échapper aux grands fauves du pays. Ainsi, cette légion montée sur éléphant ou rhinocéros a mis bien des ennemis en déroute, ce qui a toujours permi au clan Eniishi de conserver la souveraineté du territoire, même aux époques des guerres de clans. En contre-partie, le clan n'a jamais vraiment pu conquérir d'autres lieux à cause des pentes inadaptées à ces majestueuses créatures.
