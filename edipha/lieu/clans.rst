@@ -55,7 +55,7 @@ Le clan des tigres-nuages
 +------------------------+--------------------------------------------+
 | Emblême                | Deux tigres en yin-yang, sur fond de nuage |
 +------------------------+--------------------------------------------+
-| Région                 | Taigä  (croissant ouest de Shin)           |
+| Région                 | Taigä  (croissant Ouest de Shin)           |
 +------------------------+--------------------------------------------+
 | Cloches                | 702                                        |
 +------------------------+--------------------------------------------+
@@ -87,7 +87,7 @@ Le clan du poisson doré
 +----------------------+-------------------------------+
 | Emblême              | La carpe sacrée, bleue et or  |
 +----------------------+-------------------------------+
-| Région               | Meigä (croissant est de Shin) |
+| Région               | Meigä (croissant Est de Shin) |
 +----------------------+-------------------------------+
 | Cloches              | 670                           |
 +----------------------+-------------------------------+
@@ -115,7 +115,7 @@ Le clan des cîmes brûmeuses
 +--------------------------+-----------------------------------+
 | Emblême                  | Le mont Tisan, sur fond de nuages |
 +--------------------------+-----------------------------------+
-| Région                   | Rotogä (sud de Shin)              |
+| Région                   | Rotogä (Sud de Shin)              |
 +--------------------------+-----------------------------------+
 | Cloches                  | 310                               |
 +--------------------------+-----------------------------------+
@@ -144,7 +144,7 @@ Le clan des grands pieds
 +-----------------------+-------------------------+
 | Emblême               | Le rhinocéros blanc     |
 +-----------------------+-------------------------+
-| Région                | Senchigä (nord de Shin) |
+| Région                | Senchigä (Nord de Shin) |
 +-----------------------+-------------------------+
 | Cloches               | 420                     |
 +-----------------------+-------------------------+
@@ -159,3 +159,50 @@ Le clan
 """""""
 
 Vivant dans une région ou les plaines sont plus larges, le clan a su tirer des avantages indéniaux de l'endroit. Non seulement ils produisent beaucoup de culture, ce qui rend la région assez riche, mais ils ont pu dresser les majestueux animaux qui peuplent l'endroit. Il est dit que c'est une alliance mutuelle pour échapper aux grands fauves du pays. Ainsi, cette légion montée sur éléphant ou rhinocéros a mis bien des ennemis en déroute, ce qui a toujours permi au clan Eniishi de conserver la souveraineté du territoire, même aux époques des guerres de clans. En contre-partie, le clan n'a jamais vraiment pu conquérir d'autres lieux à cause des pentes inadaptées à ces majestueuses créatures.
+
+
+Le clan des démons repentis (clan du sauvage)
++++++++++++++++++++++++++++++++++++++++++++++
+
+Il fut un temps où les criminels de hauts rangs étaient envoyés au bout du monde dans le seul but de partir avec la mort la plus désagréable qui soit. Ils étaient des bannis, des hommes et des femmes sans existences, rayés de la carte et destinés à combattre des créatures effroyables, symboles de leur pêchés.
+
+Un jour, un criminel du nom de Tsurigi Gozen sauva le pays d'Édipha en réunissant un groupe de criminel soucieux de se racheter. Pour les remercier de ce formidable geste, ils furent autorisés à créer un clan du sauvage. D'abord petit, le clan sembla être la porte de tous ceux qui avaient transcrits les lois édiphans. Ceux qui espéraient échapper à la potence en les rejoignant sur demande furent vite surpris car seuls les plus forts survivent dans la région des démons. Il n'est pas rare de voir un criminel demander à être executé plutôt que de vouloir rejoindre les démons repentis.
+
++--------------------------+-----------------------------+
+| Clan des démons repentis | Kuiaratame akuma            |
++==========================+=============================+
+| Dirigeant                | Natsu Godarachi             |
++--------------------------+-----------------------------+
+| Emblême                  | l'Akuma aux cheveux rouges  |
++--------------------------+-----------------------------+
+| Effectifs                | 4100 hommes (très variable) |
++--------------------------+-----------------------------+
+| Région                   | Onigä (Est austral)         |
++--------------------------+-----------------------------+
+| Cloches                  | 110                         |
++--------------------------+-----------------------------+
+
+Natu Godarachi
+""""""""""""""
+
+Celui qui dirige le clan à présent, Natsu Godarachi, est un guerrier d'une très grande taille et d'une grande puissance. On le dit impitoyable et juste, deux qualités qui ravissent les membres de son clan. À noter qu'il s'agit d'un clan ou le sang ne compte pas et le successeur est désigné dès la prise de poste du seigneur courant, à cause de la mortalité élevée. Il semblerait être un knight qui se bat avec une large épée appelée « Shiroi me de akuma » ou en langue commune le démon aux yeux blanc. On dit que celle-ci est un ancien démon dompté par Gozen, changé en lame.
+
+
+Le clan des gardiens du Diraki
+++++++++++++++++++++++++++++++
+
+Le clan des gardiens fut fondé il y a un moment indéterminé et on soupçonne celui-ci d'avoir plusieurs milliers d'années. En effet, le Diraki n'est autre que disque sacré des dragons. Une gigantesque montagne ouverte comme un volcan où se trouve un gouffre noir comme l'encre, avec au dessus un pont réservé aux Ryudokans.
+
++-----------------------------+----------------------------------+
+| Clan des gardiens du Diraki | Gādian diraki                    |
++=============================+==================================+
+| Emblême                     | le soleil noir en éclipse        |
++-----------------------------+----------------------------------+
+| Effectifs                   | 800 hommes                       |
++-----------------------------+----------------------------------+
+| Région                      | Ryugä (Est équatorial)           |
++-----------------------------+----------------------------------+
+| Cloches                     | 12 + La cloche de l'illumination |
++-----------------------------+----------------------------------+
+
+Le clan a pour de protéger l'accès au repère secret des dragons. Depuis des milliers d'années, ils gardent les frontières et certains rares portent les cloches de Maya sur eux, les protégeant des dragons. Ces samouraï-moine sont très vénérés et sont considérés comme très sages.
