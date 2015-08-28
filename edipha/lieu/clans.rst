@@ -182,7 +182,7 @@ Un jour, un criminel du nom de Tsurigi Gozen sauva le pays d'Édipha en réuniss
 | Cloches                  | 110                         |
 +--------------------------+-----------------------------+
 
-Natu Godarachi
+Natsu Godarachi
 """"""""""""""
 
 Celui qui dirige le clan à présent, Natsu Godarachi, est un guerrier d'une très grande taille et d'une grande puissance. On le dit impitoyable et juste, deux qualités qui ravissent les membres de son clan. À noter qu'il s'agit d'un clan ou le sang ne compte pas et le successeur est désigné dès la prise de poste du seigneur courant, à cause de la mortalité élevée. Il semblerait être un knight qui se bat avec une large épée appelée « Shiroi me de akuma » ou en langue commune le démon aux yeux blanc. On dit que celle-ci est un ancien démon dompté par Gozen, changé en lame.
