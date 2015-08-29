@@ -20,7 +20,7 @@ Ce sont ceux que tout le monde connaît très bien. Ils sont au nombre de 6 et f
 * Le clan du poisson doré
 * Le clan des cîmes brumeuses
 * Le clan des grands pieds
-* Le clan des reflets tranchants
+* Le clan de la chute de lumière
 
 Ces clans sont une force considérables, comptée en dizaine de milliers de guerriers et dirigés par des hommes très influents. Un clan très spécial est :
 
@@ -71,8 +71,7 @@ Il ne combat plus depuis 10 ans environ mais ses fils, Yotama et Data sont des g
 Le clan
 """""""
 
-Le clan est le plus célèbres de tous, non seulement de par sa puissance militaire mais aussi par sa loyauté au trône. L'élite de l'élite se trouve ici, formée par des écoles de combats diverses et très réputées. L'équipement n'est pas en reste aussi car ils disposent de nombreux mages et prêtres de combats, ainsi que des canons à poudre assez perfectionnés. Leur domaine comprends environ 702 cloches, ce qui en fait un des plus puissants territoire qui soit.
-
+Le clan est le plus célèbres de tous, non seulement de par sa puissance militaire mais aussi par sa loyauté au trône. L'élite de l'élite se trouve ici, formée par des écoles de combats diverses et très réputées. L'équipement n'est pas en reste aussi car ils disposent de nombreux mages et prêtres de combats, ainsi que des canons à poudre assez perfectionnés. Leur domaine comprends environ 702 cloches, ce qui en fait un des plus puissants territoire qui soit. Le clan possède aussi une mission assez importante, par exemple empêcher les intrusions gaïjin en territoire édiphan. Comme Atale n'a toujours pas trouvé de moyen d'établir en vraie route commerciale, ils doivent souvent traiter les détails des passages avec les Mayatama, ce qui ne leur rend pas la tâche aisée vu le manque d'aide de la reine Nobuki.
 
 
 Le clan du poisson doré
@@ -159,6 +158,34 @@ Le clan
 """""""
 
 Vivant dans une région ou les plaines sont plus larges, le clan a su tirer des avantages indéniaux de l'endroit. Non seulement ils produisent beaucoup de culture, ce qui rend la région assez riche, mais ils ont pu dresser les majestueux animaux qui peuplent l'endroit. Il est dit que c'est une alliance mutuelle pour échapper aux grands fauves du pays. Ainsi, cette légion montée sur éléphant ou rhinocéros a mis bien des ennemis en déroute, ce qui a toujours permi au clan Eniishi de conserver la souveraineté du territoire, même aux époques des guerres de clans. En contre-partie, le clan n'a jamais vraiment pu conquérir d'autres lieux à cause des pentes inadaptées à ces majestueuses créatures.
+
+
+Le clan de la chute de lumière
+++++++++++++++++++++++++++++++
+
+Ce clan a pour particularité d'avoir introduit à Édipha la défense et l'attaque par miroir. En effet le soleil étant très puissant, ils ont développé des systèmes pour utiliser les miroirs afin de faciliter la défense et l'attaque. Ils sont de plus localisé dans une région aux nombreux volcans qui implique deux choses : le fait d'avoir un sable noir utilisé pour la fabrication de ces miroirs et pouvoir brûler la végétation proche des coulées de lave pour éviter les incendies dévastateurs. À noter que ce sable n'est pas très bon pour les miroirs plats mais plutôt pour les concaves, ce qui ne permet pas une production de miroir classique qui eux, sont assez rares en Édipha. Leurs miroirs concaves eux, sont gris et bleus en bordure jusqu'au noir balsatique, cette partie étant généralement cachée par une bordure stylisée.
+Il faut savoir que les rivières d'Édipha n'appartiennent pas aux clans mais à la royauté. Néanmoins, les clans les exploitent en offrant en retour des moyens gratuits de transport dessus à ceux qui en ont besoin. En retour, la couronne leur déduit une certaine réduction d'impôt. Comme la majorité des fleuves qui relient le sauvage de la région royale passent par les terres du clan, ils ont une certaine expertise dans le domaine.
+
+
++-----------------------------+-------------------------------------------+
+| Clan de la chute de lumière | Kōryō-ochi                                |
++=============================+===========================================+
+| Dirigeant                   | Ikinichi Do-Kiidan                        |
++-----------------------------+-------------------------------------------+
+| Effectifs                   | 4900 hommes                               |
++-----------------------------+-------------------------------------------+
+| Emblême                     | Le rayon du soleil qui tombe en diagonale |
++-----------------------------+-------------------------------------------+
+| Région                      | Yaseï-no-maegä (Est avant le sauvage)     |
++-----------------------------+-------------------------------------------+
+| Cloches                     | 410 cloches                               |
++-----------------------------+-------------------------------------------+
+
+
+Ikinichi Do-Kiidan
+""""""""""""""""""
+
+Ikinichi est un homme plutôt calme et réfléchit, bien qu'il ait la facheuse tendance à se voir comme l'envoyé du soleil sur la terre d'Édipha. Son peuple vénérant largement les rayons, ils possèdent les temples les plus dorés des régions dont la célèbre pagode d'or de Kiin, bâtie il y a 480 ans et cela renforce sa pensée. Humilité et fanatisme vont parfois de paire et celle-ci n'est pas absente de son caractère. Exalté par les considérations religieuse, c'est un des seigneur de son clan qui aura fait bâtir le plus de temple.
 
 
 Le clan des démons repentis (clan du sauvage)
