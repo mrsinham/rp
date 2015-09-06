@@ -4,7 +4,7 @@ Nae (encyclopédie RP)
 
 Vous trouverez tout ce dont vous aurez besoin sur l'univers de Nae dans cette documentation.
 
-Test de table des matières
+Table des matières
 
 .. toctree::
    :maxdepth: 2
@@ -35,3 +35,10 @@ Test de table des matières
    :caption: Chroniques d'Atale
 
    atale/chronique/index
+
+
+.. toctree::
+   :maxdepth: 2
+   :caption: Chroniques d'Atale
+
+   cyn/personnage/index
