@@ -42,3 +42,10 @@ Table des matières
    :caption: Cyn
 
    cyn/personnage/index
+
+
+.. toctree::
+	:maxdepth: 2
+	:caption: Qin
+
+	qin/personnage/index
