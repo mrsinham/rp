@@ -48,4 +48,4 @@ Table des matières
 	:maxdepth: 3
 	:caption: Qin
 
-	qin/personnage/index
+	qin/index
