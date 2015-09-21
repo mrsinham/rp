@@ -9,6 +9,9 @@ L'Empire de Qin
 	plaine/xi
 	plaine/chao
 	plaine/hua
+	plaine/fuxi
+	plaine/xin
+	plaine/fang
 
 .. toctree::
 	:maxdepth: 2

@@ -1,5 +1,5 @@
-Chao Wang-Mu
-============
+Chao Wang Erzi Xi
+=================
 
 +-------+-----------------+
 | Titre | Roi des plaines |
