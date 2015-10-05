@@ -8,3 +8,4 @@ Chroniques d'Atale
 	fondation_atale
 	mythe_erin
 	nord_regarde_sud
+	une_nuit_dhiver
