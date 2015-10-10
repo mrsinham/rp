@@ -9,3 +9,4 @@ Chroniques d'Atale
 	mythe_erin
 	nord_regarde_sud
 	une_nuit_dhiver
+	croisons_les_mains
