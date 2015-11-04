@@ -1,5 +1,5 @@
 Ashura Sennin
-~~~~~~~~~~~~~
+=============
 
 Ashura Sennin est le 407ème prince de l'Empire de Qin et vient du peuple
 pieu **Ramaya**. Agé de vingt-neuf ans, le prince est à la fois

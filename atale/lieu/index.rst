@@ -7,3 +7,7 @@ Lieux d'Atale
 	:caption: Les état-cité
 
 	roja
+	baran
+	stohl
+	tellion
+	ardente

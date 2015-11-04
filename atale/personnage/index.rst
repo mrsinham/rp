@@ -11,6 +11,8 @@ Personnages d'Atale
 	noreela
 	eris
 	iranne
+	cristina
+	natheo
 
 
 .. toctree::

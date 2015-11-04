@@ -11,6 +11,7 @@ Personnages d'Édipha
 	di-hamina-no-hana
 	chan
 	nobuki
+	yukan
 
 .. toctree::
 	:maxdepth: 2
