@@ -9,6 +9,8 @@ Personnages d'Atale
 	mickail
 	natheo
 	noreela
+	eris
+	iranne
 
 
 .. toctree::

@@ -24,3 +24,4 @@ L'Empire de Qin
 	:caption: Les personnages du Pays de Ramaya
 
 	personnage/ramaya/chiya
+	personnage/ramaya/ashura
