@@ -36,6 +36,11 @@ Table des matières
 
    atale/chronique/index
 
+.. toctree::
+   :maxdepth: 2
+   :caption: Atale
+
+   atale/lieu/index
 
 .. toctree::
    :maxdepth: 2
