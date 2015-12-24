@@ -13,6 +13,7 @@ Personnages d'Atale
 	iranne
 	cristina
 	natheo
+	rhiannon
 
 
 .. toctree::
