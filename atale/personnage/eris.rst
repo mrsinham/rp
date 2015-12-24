@@ -7,7 +7,7 @@ comme la plus forte femme du monde par ses supporters, surnommée la
 Traître par ses détracteurs.
 
 Historique
-==========
+----------
 
 Eris vient du pays de `Tellion <Tellion>`__ et jouissait avec son frère
 du titre d'héritière du domaine de Lohen. Elle a ainsi grandit en tant
@@ -31,7 +31,7 @@ nouvelle tragique pour le peuple. Un hommage national eut lieu, rendu
 plus humble et plus discret par le testament de celle-ci.
 
 Capacité
-========
+--------
 
 Cette femme avec son frère sont restés très mystérieux sur leur
 capacité, affirmant toujours qu'un dieu leur a révélé leur destinée. Ils
@@ -42,7 +42,7 @@ n'a pas mérité tous ces dons et qu'il est injuste pour ceux qui doivent
 travailler toute leur vie.
 
 Physique
-========
+--------
 
 Non seulement forte, cette femme blonde et élancée est douée d'un
 physique très complaisant et d'un charme prononcé. D'une bonne carrure
@@ -56,7 +56,7 @@ Elle a les iris rose-rouges, des cheveux longs détachés en forme de
 crinière sauvage et une mèche qui part sur le coté, à l'horizontal.
 
 Caractère
-=========
+---------
 
 Bien que volontaire, cette femme est toujours restée discrète et humble,
 n'aimant guère se vanter. Elle a toujours voulu aider bien qu'elle n'ait
@@ -65,7 +65,7 @@ n'a pas lutté pour obtenir ses dons n'a aucune droit d'enseigner à leur
 sujet.
 
 Fait notable
-============
+------------
 
 Il existe une église dédiée à Eris, à Atalentis nommée **Sainte Éris de
 Rhiannon**, construite sous l'impulsion de Cristina de Cérafyn et
