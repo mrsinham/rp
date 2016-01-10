@@ -29,3 +29,10 @@ Personnages d'Édipha
 
 	chizana
 	heru
+
+
+.. toctree::
+	:maxdepth: 2
+	:caption: Samouraïs
+
+	kende
