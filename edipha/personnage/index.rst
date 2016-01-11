@@ -36,3 +36,4 @@ Personnages d'Édipha
 	:caption: Samouraïs
 
 	kende
+	denma
