@@ -1,3 +1,6 @@
+Le grattement de la plume
++++++++++++++++++++++++++
+
 Les coudes posés sur le rebord du plancher, il finit par se hisser en poussant depuis l'échelle branlante, le nez dans la poussière et la saleté. L'échelle ne va pas jusqu'en haut, coupée au 9/10ème par une raison quelconque. Il se hisse jusqu'à placer ces genoux sur ce nouveau sol et se redresse, s'époussetant. Ce n'est pas qu'il affectionne ces habits raffinés, non pas du tout, mais s'il devait redescendre avec une once de saleté sur lui, on lui ferait sentir cette absence d'étiquette.
 
 Il se retourne, se penchant dans le vide et attrape la petite lanterne en fer forgé qu'il a accrochée au bout de l'échelle, amenant un cercle de visibilité autour de lui. Les tonnes de choses composant le débarras se dévoilent et il s'en rappelle avec un sourire, leurs ombres l'avaient rendu aussi craintif qu'un gosse quelques semaines plus tôt. 
