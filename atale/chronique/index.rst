@@ -10,3 +10,4 @@ Chroniques d'Atale
 	nord_regarde_sud
 	une_nuit_dhiver
 	croisons_les_mains
+	le_grattement_de_plume
