@@ -44,4 +44,52 @@ Habitué, il prend la feuille et lit la réponse.
 
 ++ Tu as l'air plus frustré qu'un automate de cuivre. ++ 
 
-Il rit en lisant la réponse, replaçant la feuille sous la plume. Il rit pour la première fois de la journée.
+Il rit en lisant la réponse, replaçant la feuille sous la plume. Il rit pour la première fois de la journée et retombe dans le voltaire qui ne laisse presque plus échapper de poussière. La première fois, il avait cru s'étouffer quand le tissu avait relâché le contenu de plusieurs décennies et la lampe à huile avait créé plus de brouillard qu'une voiture au milieu des terres gelées d'Atale. Il pose sa joue sur ses phalanges, pensif. S'il ne veut pas être fatigué demain, il a à peine une heure avec cet étrange interlocuteur. Il inspire lourdement et passe sa main dans ces cheveux qui n'ont rien de beau.
+
+Syis n'est pas déplaisant. Il est juste… un peu mal conçu. Une sorte de gêne à le regarder qui ne saurait s'expliquer. Comme si son dessinateur n'avait pas fini le cours sur les proportions avec toutes les mentions. Ses cheveux sont un peu gras mais bien entretenu. Il n'est pas laid mais ne charme pas. Il n'est pas sportif mais cours assez bien.
+
+C'est une sorte de moyenne. Il est le kilo de l'humain. Et généralement on fait un peu plus d'un kilo.
+
+Il dessine négligeamment dans la poussière du bureau. Peu importe ce qu'il fait, dessine, elle revient toujours semblable. Cette fois ci, il écrit un C, un H, soupire et continue avec le début d'un… La main mécanique reprend son ballet. Il se lève un peu pour voir.
+
+++ Ne l'écris pas. ++ 
+
+Il relève un sourcil et se laisse tomber.
+
+— « Pourquoi ? Ça t'exorcise ? Tu as des complexes d'existence toi aussi ? »
+
+Il attend et lit.
+
+++ Je n'aime juste pas. ++
+
+— « Pourtant tu me l'as dit. Tu m'as bien dit ton nom, pourquoi je ne devrais pas l'écrire ? »
+
+Les yeux jouent un ballet pendant la réponse.
+
+++ Le dire à une personne n'est pas pareil que l'écrire. L'écriture est impersonnelle, elle n'est jamais réellement adressée à la personne qui la lit en premier. ++
+
+Syis arrondit son sourire en coin.
+
+— « Pourtant tu me parles ainsi. »
+
+Le mécanisme émet un bruit aigu, une petite sonnerie et le papier avance.
+
+++ Je pourrais répondre : « Ce qu'il fallait démontrer » mais ce serait faux et orgueilleux. Je ne suis pas à te manipuler: tu n'es pas un assez gros poisson, sauf ton respect. ++
+
+Syis tire sa manche en dentelle, pensif.
+
+— « Dis, quand tu disais que tu étais maléfique, que tu faisais des mauvaises actions… C'était vrai ? Je veux dire … » - Son visage prend presque une forme convaincante pour le spectateur - « … Tu fais vraiment partie des créatures comme celles des invocateurs, qui donnent des dons en échange d'âme ? »
+
+++ C'est très spécifique comme question et quelque peu romantique. ++
+
+— « Oui mais tu me dis de ne plus venir, de ne plus te parler. Tu ajoute que je devrais simplement rester à ma vie moyenne, essayer de piéger ceux qui me font du mal et m'en sortir comme je peux. De l'autre, tu dis que tu es une personne - une chose - à ne pas fréquenter. Tu me laisses un peu perplexe, Chariot. Tu pourrais me proposer des pouvoirs en échange de mon âme par exemple, mon premier fils ou autre. Du coup tu n'es pas très crédible. Ou logique. Ou les deux. »
+
+Le temps se fait presque un peu long alors que le sourire mutin fixe les yeux de nacre. Un peu trop long. L'attente qui est parfaitement maîtrisée semble finalement un peu oppressante pour le jeune homme et en semble plus fragile. 
+
+La plume reprend.
+
+++ Si je devais demander ton premier fils je devrais le faire tester comme je le ferai avec un faux billet. ++
+
+S'en suit un rire que le jeune homme cache dans sa main. Il est tard et ce lieu ne doit rester qu'à lui.
+
+— « Tu es drôle, Chariot ! Hahahaha. »
