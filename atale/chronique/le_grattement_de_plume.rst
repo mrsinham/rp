@@ -5,7 +5,7 @@ Les coudes posés sur le rebord du plancher, il finit par se hisser en poussant 
 
 Il se retourne, se penchant dans le vide et attrape la petite lanterne en fer forgé qu'il a accrochée au bout de l'échelle, amenant un cercle de visibilité autour de lui. Les tonnes de choses composant le débarras se dévoilent et il s'en rappelle avec un sourire, leurs ombres l'avaient rendu aussi craintif qu'un gosse quelques semaines plus tôt. 
 
-Il avance dans cette pièce sous toit ronde comme une coque de bateau renversée, dépassant les draps et autre bâches que quelqu'un avait prévu de retirer un jour. Puis ce quelqu'un est mort et ces objets n'existaient plus que pour lui à présent. Il aime les regarder pour cette existence qu'il leur apporte. 
+Il avance dans cette pièce au  toit rond comme une coque de bateau, dépassant les draps et autre bâches que quelqu'un avait prévu de retirer un jour. Puis ce quelqu'un est mort et ces objets n'existent plus que pour lui à présent. Il aime les regarder pour cette existence qu'il leur apporte. 
 
 Parfois Syis lève le bras pour s'offrir un moment. Éclairant une vieille poupée et son visage pour offrir au jouet un dernier regard - étrangement l'oeil brisé ne le gêne pas - et il essuie un peu de suie sur le visage de cire. Il sait que lui aussi les oubliera, mais après tout du point de vue de l'histoire n'est-il pas semblable à eux.
 
@@ -13,7 +13,7 @@ Il finit par avancer le long des combles, passant parfois sous une lucarne qui n
 
 Cette passion pour les objets abandonnés, il se l'est devinée par une faible autopsychanalyse. Troisième d'une fratrie et faisant un faible mètre soixante-cinq, il n'est nul doute qu'il se sent comme eux. S'il avait arboré un glaive en acier Stohlien de cinq kilos et des épaules du double, il est certain qu'il serait aussi insensible que ses frères.
 
-La distance parcourue qui le fait s'enfoncer jusqu'à l'extrémité du bâtiment le met de plus en plus à l'aise. À sa première exploration, il s'était quasiment fait dessus, mais à présent, même ce qu'il a découvert à la fin de son périple le rend de plus en plus confiant.
+La distance parcourue qui le fait s'enfoncer jusqu'à l'extrémité du bâtiment le met de plus en plus à l'aise. À sa première exploration, il s'était quasiment fait dessus mais à présent, ce qu'il a découvert à la fin de son périple le rend de plus en plus confiant.
 
 Oui il y un fantôme ici. Mais même les fantômes sont parfois plus réconfortants que cette famille. Dans ses habits de soie et de velours bleu, le jeune homme un peu pâle s'enfonce jusqu'à la pièce fermée aux fenêtres murées. Au centre de cette pièce, un simple bureau.
 
