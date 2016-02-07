@@ -7,3 +7,4 @@ Les Chyiinites
 
    messaya
    sola_daryl
+   chariot
