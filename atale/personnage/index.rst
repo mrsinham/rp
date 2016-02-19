@@ -14,6 +14,7 @@ Personnages d'Atale
 	cristina
 	natheo
 	rhiannon
+	lyfa
 
 
 .. toctree::
