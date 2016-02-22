@@ -161,4 +161,54 @@ Un frisson parcourt la colonne de l'adolescent. Il ne sait pas trop si c'est sa 
 ++ Alors mon plan est magnifiquement exécuté. Tu étais en fait le seul héros capable de m'arrêter et je viens de t'attendrir au point de gagner. Et pour arrêter de plaisanter, change de page, je suis a deux doigts d'écrire dans la marg… +
 
 
+Le jeune homme éclate de rire encore une fois, étonné d'être d'une aussi bonne humeur après une journée aussi pénible. Il se jette sur le bureau, faisant un clin d'oeil à l'automate qui semble se bloquer à la fin de la page, buggant sur un mouvement répété de bas en haut avec ses yeux, et change enfin l'espace d'écriture avec une nouvelle page.
 
+« Là c'est mieux ! Je vais rester à côté pour pouvoir réagir vite, Chariot. » Le voici qui commence à tirer le voltaire pour le rapprocher, mais au début d'un grincement qui fait vibrer le sol, il ressent une profonde frayeur qui le fait déplacer le meuble en soulevant. « … Comme ça… ha! Voilà, je peux changer tes pages vite fait ! »
+
+++ Quelle pitié que d'être muselé par une prison de cellulose. Chtoniens votre pouvoir est charmant, de pouvoir créer nature pour qu'on la tranche et la prépare à recevoir rimes de petite qualité et lettres sans grand intérêt. ++
+
+« Tu es l'exemple que l'humour noir peut être plaisant, Chariot. Dis-moi, tu ressembles à quoi. Han han, nan, dis-moi si tu es un homme ou une femme s'il te plaît. » Fait simplement le jeune homme, menton dans sa paume.
+
+++ Tes questions ne sont pas très rentables pour toi. Oui, non, choix un, choix deux. Formule-les autrement. Tu peux dire par exemple : Chariot, qu'est ce que tu es, me ressembles tu un peu physiquement, que penserais-je de toi dans la rue si je te croisais. C'est ce qu'on appelle ouvrir la question. ++
+
+« Hooo ! Tu es vraiment doué dans l'art des mots Chariot. Tu dois charmer tellement de gens ! »
+
+++ Tu dois aussi apprendre à masquer un peu tes compliments. Bref je réponds à homme ou femme ? ++
+
+« Non non ! » Les deux paumes sont levées pour se reprendre. « Quel type de pensée j'aurai en te croisant et quels types de pensée aurait mon frère en te croisant. »
+
+++ On dirait que tu commences à comprendre. Bien joué pour ton frère. C'est précis et pourtant me force à parler. Sûrement que tu serais intrigué et légèrement impressionné. Tu te demanderais, pourquoi ce regard perdu et cette coupe étrange. On dirait un hussard de Roja qui serait né dans le nord. Pour ton frère, il essaierait de se redresser pour arriver à ma taille et essaierait de deviner quel genre de personne je suis. Comme je ne lui porterai pas attention, il serait colérique et jugerai que je suis juste coincé. ++
+
+« Oh, alors si je résume bien … » Fait un Syis en ayant pris la feuille pour la mettre devant ses yeux en profitant d'un changement. « Tu es grand, tu as une coiffure étrange et un regard perdu. Comme mon frère serait en concurrence… tu es donc un homme … et un hussard de Roja né dans le nord… mm brun corbeau, mais la peau pâle ? »
+
+++ Tu n’es pas mal avisé pour un perdant. Vois le changement de pensée qui t'ouvre bien des réponses. L'humanité est faite ainsi. Compliquée d'apparence, simple de contenance. ++
+
+« Ca fait donc quatre réponses. Tu m'aides, mais je me débrouille plutôt bien. Dis, si je voulais qu'on fasse un pacte et qu'en échange de quelque chose tu me donnes le pouvoir de botter le derrière de mon frère, tu répondrais quoi ? C'est hors questions hein ! Si tu ne veux pas répondre à ca, pas de soucis !! »
+
+++ Je dirais que tu n'as vraiment rien qui m'intéresse. Désolé Syis. »
+
+« Et même si je devenais genre… chef de famille, que j'assassinais tous ceux qui me gênent avec ton aide et qu'ensuite j'utilisais le pouvoir politique de mon père pour t'arranger ? Hein? C'est pas mal hein ca. »
+
+++ Ta famille dirige une ville de 5000 habitants dans l'arrière-pays d'Élion. Je doute que même en chef de famille tu puisses être intéressant. ++
+
+« Alleeeez Charioooot. »
+
+++ Chut. Mets le drap sur le mannequin, on arrive. Éteins ta lumière. ++
+
+Le coeur du jeune homme s'arrête en lisant la page. il ramasse très rapidement les pages, sa respiration et son être revenant dans ce monde terreur qu'est son quotidien. On pourrait penser qu'un fils de bonne famille vit des problèmes relativement légers, mais toute souffrance est à comptabiliser. Le pauvre qui est peiné par l'injustice de son sort pourra toujours plus facilement décharger la peine sur des idées claires et précises, accuser la société. Mais le jeune homme frêle et émo d'une famille aisée, qui peut-il blâmer. On lui dira toujours de retirer la collerette de ses manches de soie et d'enfin se bouger les fesses. De prendre sa destinée en main et de devenir la personne responsable qu'il devrait être si seulement il brisait ce petit cocon tout laid. L'humanité en vient même souvent à dire : je ne vais pas non plus m'occuper de tous les chialeurs de l'univers. 
+
+Chariot aime bien contempler ce genre de mauvaise toile que peint la destinée. Il affectionne le héros qui sombre ou le perdant qui doute davantage que l'idiot qui ne pense jamais aux conséquences. L'idiot n'a que faire de la justice, il ne pense qu'à SA justice. Dès lors qu'il faut réfléchir et avoir un avis objectif sur la nature humaine, il n'y a souvent personne au bout de la conversation.
+
+Les yeux fixes de métal regardent la lumière s'approcher de sous le drap, celle-ci oscillant comme un phare hésitant. Les voix parviennent aux oreilles sans tympan et comme il les a reconnus depuis longtemps, il trouve que la situation est tout simplement poétique. Une poésie noire, méchante et vulgaire, mais si lui qu'on a décrit bien souvent comme prince de la destruction ne saurait l'apprécier, qui d'autre le ferait. Syis peut-être.
+
+L'avantage avec des yeux mécaniques, c'est qu'on a aucun besoin de cligner des yeux. On voit le ridicule s'approcher sans avoir de faux mouvements qui les fermeraient ou les baisseraient. 
+
+« Allez viens, on va tenter d'aller jusqu'au bout ! Haha, tu as peur ! » s'exclame un Tadiem très sûr de lui.
+
+« Évidemment que j'ai la trouille ici, il y a plein de choses qui font peur ici ! T'es bête Tadiem ! »
+
+« Tu préfères quand mon frère te fait la cour avec ton chaperon à côté, ma belle ? Qu'il te parle en faisant ah-bah-bha avec sa tête de poisson rouge ! » répond-il avec un rire et une imitation plutôt réussie.
+
+« Ah non ! Tout, mais pas ça ! Putain qu'est qu'il est chiant ! Et tout petit ! Par Rhiannon s'il me fait des enfants ils seront nains ! »
+
+Entre les rires et les moqueries, Chariot continue de regarder. Il regarde aussi les yeux de Syis et se délecte de sa douleur. Elle lui serre le coeur comme une petite pince mécanique et il n'a même pas le courage de pleurer et encore moins de serrer le poing. Comparé à tous les héros qui ont péri entre ses doigts, l'être hors du temps se dit qu'il faut du courage pour vivre toute sa vie comme un naufragé dont on enfoncerait la tête sous l'eau après chaque demi-inspiration prise.
