@@ -211,4 +211,50 @@ L'avantage avec des yeux mécaniques, c'est qu'on a aucun besoin de cligner des 
 
 « Ah non ! Tout, mais pas ça ! Putain qu'est qu'il est chiant ! Et tout petit ! Par Rhiannon s'il me fait des enfants ils seront nains ! »
 
-Entre les rires et les moqueries, Chariot continue de regarder. Il regarde aussi les yeux de Syis et se délecte de sa douleur. Elle lui serre le coeur comme une petite pince mécanique et il n'a même pas le courage de pleurer et encore moins de serrer le poing. Comparé à tous les héros qui ont péri entre ses doigts, l'être hors du temps se dit qu'il faut du courage pour vivre toute sa vie comme un naufragé dont on enfoncerait la tête sous l'eau après chaque demi-inspiration prise.
+Entre les rires et les moqueries, Chariot continue de regarder. Il regarde aussi les yeux de Syis et se délecte de sa douleur. Elle lui serre le coeur comme une petite pince mécanique et il n'a même pas le courage de pleurer et encore moins de serrer le poing. Comparé à tous les héros qui ont péri entre ses doigts, l'être hors du temps se dit qu'il faut du courage pour vivre toute sa vie comme un naufragé dont on enfoncerait la tête sous l'eau après chaque demi-inspiration prise. Quel courage faut-il pour appuyer sur le visage sans avoir aucune idée des conséquences. Par contre taper une surface liquide avec ses paumes dans l'espoir d'y survivre et ne pas abandonner avant que ses muscles n'en puissent plus est beaucoup plus louable.
+
+L'humanité est injuste par son existence même. 
+
+Prenez la totalité de l'existence humaine, réduisez-la en poudre et vous vous retrouverez à chercher les grains de courage comme un mineur âgé qui croit encore que parce que ce sont des grains minuscules d'or, cela changera sa vie. Au final il existe tellement peu de courage, tellement peu de sacrifice et de justice que le mineur de vertu ne sait plus quoi faire de la boue qu'il a du dégager pour trouver la pépite.
+
+Et après il faut croire les héros qui s'évertuent à changer le monde. Ils gagnent contre le méchant, font leur légende et sont oubliés. Ils ont beau inspirer Joseph le boulanger dans les romans qu'il lit le soir, cela ne l'empêche pas de virer le SDF qui vient dormir a coté de l'aération de son four la nuit.
+
+Alors si la justice, le bonheur et l'amour sont eux même pénibles à voir lorsqu'on a le tableau dans l'ensemble, que penser d'un adolescent qui martyrise son frère et emmène sa fiancé dans un grenier dans l'espoir de la tringler sur un bureau plein de poussière. À vrai dire, il aime davantage le tableau de Syis qui a les yeux brillants de désespoir, la lumière étrange et baroque qui donne au tableau une atmosphère inquiétante.
+
+Il n'écoute plus les démonstrations de courage de Tadiem et les gloussements de Toe, la fille qui s'invente plus méchante qu'elle n'aurait voulue. Les mauvaises filles sont toujours comme ça. Elles sont en fait des filles plutôt gentilles, mais qui ont peur de perdre le contrôle. Elles font tout contre ça et finisse par s'inventer un personnage, se laisse dépasser par celui-ci et l'absorbe pour devenir cette fille qui lutte faussement contre Tadiem qui l'embrasse en la penchant en arrière, légèrement de force. 
+
+Syis serre les dents devant le spectacle, le nez coulant presque jusqu'à ces lèvres. Il n'aime pas vraiment cette fille, mais l'humiliation elle, semble être sa future promise. Il sent comme la rage boue en lui et appelle Chariot, se disant à chaque instant qu'il va hurler un appel à Chariot ou bien les planter avec un couteau qu'il aurait trouvé par hasard. Mais la peur, le fait de dévoiler qu'il se sait cocu lui tord les tripes. Que pourrait-il faire. Il a peur de toutes les situations qui passent dans sa tête, de toutes les possibilités. Sauf évidemment le fait d'appeler Chariot. Ça, ça a l'air de ne pas lui faire peur. Évidemment puisque ça ne l'implique pas lui. 
+
+Alors qu'elle se fait remonter sa robe et que Tadiem la monte sur le bureau qu'il essuie à peine, qu'elle murmure timidement qu'elle doit rester vierge et que Tadiem l'embrasse dans le cou en lui disant avec fermeté que son frère ne saurait voir la différence, Chariot reste pensif. Même le fait d'etre secoué par les coups de reins du jeune homme et du fessier de la fille sur le bureau ne semble pas l'éveiller. Encore un stéréotype. Encore une décept…
+
+La voix de Syis démarre par un étranglement puis par une poussée de voix qui commence ridicule, prend une pause et revient presque normale.
+
+- « … e … Je t'échange mon amitié ! »
+
+Les yeux reviennent sur la situation, l'être immortel étonné d'être ramené sur cette situation. Toe hurle, ramène son jupon en poussant Tadiem.
+
+— « Putain Syis tu nous a suivis pervers ! Qu'est-ce que tu racontes, pauvre naze ! »
+
+— « Hii … ! Il nous a vu Tadiem mon père va me tuer ! » 
+
+— « T'inquiètes pas, il va fermer sa gueule quand j'en aurai fini avec lui. Et arrête de crier on va se faire repérer ! »
+
+Syis ne semble pas faire attention à eux. Il recule à peine d'un pas quand son frère s'avance menaçant. Il se penche sur le côté, appelant Chariot.
+
+— « Tu dis toujours que personne ne te comprends et te juge, mais pas moi ! J'ai lu assez d'oeuvres de Daente pour savoir que ceux qui sacrifient tout à leur cause n'ont pas d'amis ! Et comme je ne suis rien, je ne peux pas être intéressé ni vouloir t'utiliser ! Je peux donc être ton am… »
+
+— « Oh ta gueule ! Tu vas réveiller la famille ! » - le poing part dans le visage du jeune homme qui s'effondre avec fracas au sol.
+
+— « Arrête Tadiem tu vas le blesser ! »
+
+— « Tu veux qu'il raconte tout ?! »
+
+— « … »
+
+— « Bon, je lui fais passer l'envie de tout raconter et on se casse … ! »
+
+Il avance vers Syis qui se tient la joue. Il murmure doucement. « Ton ami. Je serai ton ami. Ton ami. »
+
+Tadiem fait à peine un pas quand une sonnerie d'automate se fait entendre. Quand il se retourne pour regarder le drap en coeur avec son amie polissonne, celle-ci étouffe un cri de ses mains et lui remonte les sourcils. 
+
+Un sourire de lumière amarante est apparu sous le tissu, donnant à l'automate des allures de diable.
