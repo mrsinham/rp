@@ -783,16 +783,16 @@ Avec le sourire … »**
 Ils remuèrent leurs armes dans la poitrine et le dos du prince, ce qui
 le fit rompre sa respiration par une toux de sang. Ils lui hurlèrent des
 choses qu'il ne comprenait pas. Ils brandissaient des lances comme des
-paysans en colère bien que cette notion n'existe pas en Édipha. Ce qui
+paysans en colère bien que cette notion n'existe pas en Édipha. Ce qu'il
 trouvait le plus difficile à supporter, c'était leur présence. En
 définitive, le prince s'aperçut qu'il ne leur en voulait pas réellement.
-Il avait vu leurs regards, leurs détresse et au final, tous barbares
-qu'ils sont, ils sont une sorte d'homme.
+Il avait vu leurs regards, leurs détresse et au final, tout barbares
+qu'ils sont, ils sont des hommes.
 
 Ce qui est vraiment difficile à supporter, c'est manquer d'air. Il tenta
 de les repousser vainement en donnant un coup de poing dans le vide, une
 goulée de sang lui coulant sur le menton. Son nez et sa bouche se
-bouchent de ce liquide au goût mauvais qui brûlent ses poumons.
+bouchent de ce liquide au goût mauvais qui brûle ses poumons.
 
 Il tombe dans l'eau, face dans le liquide, un oeil sous la surface. Il y
 trouve même un certain plaisir à cette chute. L'eau est fraîche et il
