@@ -1,6 +1,6 @@
 Une journée éprouvante qui finit encore après le coucher du soleil ou presque, le soleil se déposant dans son lit de collines noires. Tadiem soupire quand son carrosse arrive dans le large cercle qui fait le tour devant la bâtisse qui elle, s'est changé avec une robe lumineuse composée de lustres et lampadaires.
 
-Le verre de Sangréal a fait du bien, bu à même le bar de la voiture, avec son alcool puissant et son humeur fruitée. Caressant son petit bouc en pointe coloré de roux, l'homme ne fait même plus attention à la prestance qu'il dégage. À force de manipuler tous les incompétents toute la journée pour faire ses quatre volontés en affaire, il ne prête même plus attention à ses outils de séduction sur le chemin du retour. Son livre du moment — « l'art de la bonté » par Nathéo de Flail dans son édition numérotée — est posé sur son petit meuble devant le siège. Son mal de crâne ne le lâche pas, mais son envie de lire, si.
+Le verre de Sangréal a fait du bien, bu à même le bar de la voiture, avec son alcool puissant et son humeur fruitée. Caressant son petit bouc roux en pointe, l'homme ne fait même plus attention à la prestance qu'il dégage. À force de manipuler tous les incompétents toute la journée pour faire ses quatre volontés en affaire, il ne prête même plus attention à ses outils de séduction sur le chemin du retour. Son livre du moment — « l'art de la bonté » par Nathéo de Flail dans son édition numérotée — est posé sur son petit meuble devant le siège. Son mal de crâne ne le lâche pas, mais son envie de lire, si.
 
 C'est presque un soulagement lorsque la porte en lui dévoilant son domestique qui avec un gant blanc et la main montée au coeur, lui rappelle enfin de bonnes sensations. Il attrape la barre en bois et descend les marches d'un pas assez puissant pour faire sautiller la cabine et pose enfin le pied sur les graviers. 
 
@@ -60,4 +60,53 @@ Les yeux de Tadiem partent vers la gauche, s'accrochant aux gants blancs posés 
 
 Il renforce son allure, ses yeux ballottant de sa progéniture à son invité qui à son aise, boit déjà un verre de vin et fume un cigare de l'autre.
 
-Sa fille éclate de joie lorsque son paternel héros rentre dans son champs de vision.
+Sa fille éclate de joie lorsque son paternel héros rentre dans son champs de vision, souriant en passant de la large crédence contenant les graines, ustensiles botaniques et tout le nécessaire pour s'adonner aux loisirs du jardin avec la noblesse de la famille.
+
+— « Père ! Vous êtes rentrés ! Nous avons un invité ce soir, un de vos amis. N'est ce pas Charles ? »
+
+Elle se lève, alors qu'enfin il arrive à portée pour voir le magnifique profil légèrement albâtre de celui-ci, qui le regarde de côté. Aussitôt Tadiem reporte son regard sur sa fille, offrant son plus beau sourire tranquille.
+
+— « Vous avez reçu l'autorisation d'appeler notre invité par son prénom, ma chère ? »
+
+Elle arrive devant lui, les mains sur les hanches. 
+
+— « Bien sûr père ! Pour qui me croyez vous ? »
+
+Il lui offre un baiser sur la tempe, inclinant sa trajectoire vers la table basse.
+
+— « Pour une fille bien trop facile à taquiner. »
+
+— « Mh ! »
+
+Il sourit cette fois plus vivant, avec une légère émotion, face au gracile Charles qui se relève, se déployant presque d'une tête de plus. Portant une redingote sombre et des manches à revers, un col cassé ou est nouée une large cravate de tissu bouffant, un gilet blanc crème aux maillons un ton plus sombre, celui-ci trempe dans le même domaine que le père des enfants ici présent. L'élégance et le charisme avec peut-être une âme plus gothique. Celui-ci sourit avec ces physiques qui ont de l'éloquence. Plongez une goutte blanche de joie réel au milieu d'un verre d'eau sombre et poétique et vous aurez peut-être une idée métaphorique du mouvement de lèvre.
+
+La main tendue est grande, puissante tout en paraissant fragile. Tadiem la regarde à peine un instant avant de la serrer, le regard dans celui de son ami de longue date, son autre main refermée par dessus.
+
+— « Pour une surprise, c'est une surprise, Charles. »
+
+— « Imprévue mais n'est ce pas là que nous devenons des rois qui discutent à l'image de ceux dont s'amusent vos enfants, Tadiem. »
+
+Le regard est appuyé pour les deux, puis Tadiem se tourne vers sa descendance.
+
+— « J'espère que vous avez déployé tout votre savoir pour rendre l'attente de Monseigneur Alasdéirm d'Alasdair intéressant, mes chères ouailles du cynisme. »
+
+Jean s'exclame avant même que sa soeur revienne avec sa verve vindicative, la coupant par précaution.
+
+— « Certes oui et regardez père ! »
+
+Tadiem fait le tour pour s'assoir à côté de Charles, voyant sur la table basse un jeu d'échec en marbre où la partie est bien terminée. Regardant vite la situation, le père fait semblant d'être étonné. 
+
+— « Toi, Jean, battu ? Ne viens tu pas de finir premier de ta ligue ? »
+
+Celui-ci, gêné, frotte son avant-bras.
+
+— « Si. Mais je me suis bien défendu ! »
+
+Charles, assit, ajoute Aussitôt :
+
+— « Je ne peux qu'acquiescer. Il a de nombreux dons pour la tactique. »
+
+Yulid ne peut s'empêcher d'ajouter avec un ton qui rappelle le sempiternel - Et moi et moi ! - :
+
+— « Mais au final il a perdu ! Hihi ! On trouve toujours son maître ! »
+
