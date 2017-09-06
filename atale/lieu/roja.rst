@@ -695,8 +695,7 @@ Représentant du Roi et donc de l’autorité d’Atalentis dans la région,
 le Gouverneur surveille et administre avec le Sénat la population
 locale. Si officiellement il ne s’immisce que peu dans la vie
 quotidienne, aucune décision du Sénat n’est appliquée sans son accord.
-De même, c'est le Gouverneur qui désigne quel Citoyen exceptionnel
-sera la voix du Roi au sein du Sénat.
+Attention, le Gouverneur impérial est différent du citoyen exceptionnel qui lui est la parole du roi au sein du sénat. Souvent leurs interets sont similaire mais ce n'est pas toujours le cas.
 Il est nommé pour une période indéterminée par le Roi et le Palais est
 sa résidence principale, ainsi que celle de sa famille.
 
